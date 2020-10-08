@@ -5,3 +5,5 @@
 >Death is not the greatest loss in life. The greatest loss is what dies inside while still alive.
 
 >Every time somebody hurts you, pick up a book.
+
+>Remember your humanity, and forget the rest. If you can do so, the way lies open to a new Paradise; if you cannot, there lies before you the risk of universal death.
