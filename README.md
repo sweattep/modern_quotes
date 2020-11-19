@@ -7,3 +7,5 @@
 >Every time somebody hurts you, pick up a book.
 
 >Remember your humanity, and forget the rest. If you can do so, the way lies open to a new Paradise; if you cannot, there lies before you the risk of universal death.
+
+>Seeking perfection, we see what our dreams and hopes might look like. We realize they come as a gift through no power of our own, and if we lose them, isn't that almost worse than never having had them in the first place?
