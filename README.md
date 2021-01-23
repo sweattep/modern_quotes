@@ -19,3 +19,5 @@
 >Sometimes we must fall, sometimes we will rise - some must be hurt while others have fortune, for that is the only way we can learn to rely on one another. As one is blessed, it is his privilege to help those whose lives are not as easy.
 
 >Once it has become a crime to tell the truth, then we will have tyranny.
+
+>The mass of an object remains the same throughout the universe, whereas its weight is a function of gravity on any given planet.
