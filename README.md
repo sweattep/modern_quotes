@@ -21,3 +21,5 @@
 >Once it has become a crime to tell the truth, then we will have tyranny.
 
 >The mass of an object remains the same throughout the universe, whereas its weight is a function of gravity on any given planet.
+
+>The distinction of vice and virtue is not founded merely on the relations of objects, nor is perceiv’d by reason.
