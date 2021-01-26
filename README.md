@@ -23,3 +23,5 @@
 >The mass of an object remains the same throughout the universe, whereas its weight is a function of gravity on any given planet.
 
 >The distinction of vice and virtue is not founded merely on the relations of objects, nor is perceiv’d by reason.
+
+>Distraction is an emotion-focused coping strategy because it diverts the focus of attention away from unpleasant stimuli by manipulating the environment. Distraction interventions are effective because individuals can concentrate on pleasant or interesting stimuli instead of focusing on unpleasant symptoms. Techniques such as humor, relaxation, music, imagery, and VR all are classified as distraction interventions, and they can relieve physical symptoms such as pain, anxiety, nausea, and stress.
