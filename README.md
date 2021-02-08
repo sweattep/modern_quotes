@@ -27,3 +27,7 @@
 >Distraction is an emotion-focused coping strategy because it diverts the focus of attention away from unpleasant stimuli by manipulating the environment. Distraction interventions are effective because individuals can concentrate on pleasant or interesting stimuli instead of focusing on unpleasant symptoms. Techniques such as humor, relaxation, music, imagery, and VR all are classified as distraction interventions, and they can relieve physical symptoms such as pain, anxiety, nausea, and stress.
 
 >As a result, it's not known if a person who is vaccinated could be a carrier of the COVID-19 virus and spread it to others, even if he or she doesn't become sick. More research is needed to determine if you are still contagious after being vaccinated.
+
+>Human beings have an inalienable right to invent themselves.
+
+>The Gods we worship write their names on our faces; be sure of that. And a man will worship something
