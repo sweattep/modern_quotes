@@ -35,3 +35,5 @@
 >The best way to get the right answer on the internet is not to ask a question; it's to post the wrong answer.
 
 >If you receive a bribe, include it in your income.
+
+>If you steal property, you must report its FMV in your income in the year you steal it unless in the same year, you return it to its rightful owner.
