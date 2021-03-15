@@ -33,3 +33,5 @@
 >The Gods we worship write their names on our faces; be sure of that. And a man will worship something
 
 >The best way to get the right answer on the internet is not to ask a question; it's to post the wrong answer.
+
+>If you receive a bribe, include it in your income.
