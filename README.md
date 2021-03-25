@@ -48,4 +48,10 @@
 
 >The only difference as compared with the old, outspoken slavery is this, that the worker of today seems to be free because he is not sold once for all, but piecemeal by the day, the week, the year, and because no one owner sells him to another, but he is forced to sell himself in this way instead, being the slave of no particular person, but of the whole property-holding class.
 
+>It must be acknowledged that our worker emerges from the process of production looking different from when he entered it.
 
+>Formerly the master selected the slave; today the slave selects his master
+
+>It is the same among us: people of our day consider the position of the laborer to be a natural, inevitable economic condition, and they do not call it slavery. And as, at the end of the Eighteenth Century, the people of Europe began little by little to understand that what formerly seemed a natural and inevitable form of economic life-namely, the position of peasants who were completely in the power of their lords-was wrong, unjust and immoral, and demanded alteration, so now people today are beginning to understand that the position of hired workmen, and of the working classes in general, which formerly seemed quite right and quite normal, is not what it should be, and demands alteration.
+
+>Society forms a screen between nature and man.
