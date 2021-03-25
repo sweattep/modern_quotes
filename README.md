@@ -37,3 +37,7 @@
 >If you receive a bribe, include it in your income.
 
 >If you steal property, you must report its FMV in your income in the year you steal it unless in the same year, you return it to its rightful owner.
+
+>What if I told you insane was working fifty hours a week in some office for fifty years at the end of which they tell you to piss off; ending up in some retirement village hoping to die before suffering the indignity of trying to make it to the toilet on time?
+
+>It's pretty hard to remember maybe, but if you go back to the early industrial revolutions, the late 19th century, wage labor was considered essentially the same as slavery. The only difference was that it was supposed to be temporary. That was a slogan of the Republican party: opposition to wage slavery.
