@@ -59,3 +59,5 @@
 >If you want to learn to swim jump into the water. On dry land no frame of mind is ever going to help you.
 
 >Everyone is learning the crawl and the backstroke on dry land, but no one ever gets in the water because it's too dangerous.
+
+>If I could start from scratch, I'd sign to Def Jam...
