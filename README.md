@@ -61,3 +61,6 @@
 >Everyone is learning the crawl and the backstroke on dry land, but no one ever gets in the water because it's too dangerous.
 
 >If I could start from scratch, I'd sign to Def Jam...
+
+>Ignorance allied with power is the most ferocious enemy justice can have
+
