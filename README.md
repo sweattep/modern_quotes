@@ -69,3 +69,5 @@
 >we will get out when you prove we will be boiled alive
 
 >You are replaceable to your company, but not to your loved ones
+
+>You cannot write an email while making a presentation
