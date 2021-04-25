@@ -73,3 +73,5 @@
 >You cannot write an email while making a presentation
 
 >Ultimately, Mary was traced to a total of around 50 typhoid cases and three deaths. This is tragic, no doubt, but George Soper himself later admitted that this was not as large a toll as other carriers who were discovered after Mary received a life sentence in quarantine.
+
+>In its very earliest stages, the symptoms of the deadly flu could mimic those of the milder strain of influenza and even the common cold. Moreover, those familiar with the publicity surrounding the famous Typhoid Mary knew that some diseases could be spread by healthy carriers.
