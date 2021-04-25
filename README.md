@@ -75,3 +75,5 @@
 >Ultimately, Mary was traced to a total of around 50 typhoid cases and three deaths. This is tragic, no doubt, but George Soper himself later admitted that this was not as large a toll as other carriers who were discovered after Mary received a life sentence in quarantine.
 
 >In its very earliest stages, the symptoms of the deadly flu could mimic those of the milder strain of influenza and even the common cold. Moreover, those familiar with the publicity surrounding the famous Typhoid Mary knew that some diseases could be spread by healthy carriers.
+
+>it is a fact that a commercial trust differs from a typical traditional trust in that it arises out of a contract rather than the transfer of property by way of gift. The contract defines the parameters of the trust. Trusts are now commonly part of the machinery used in many commercial transactions, for example across the spectrum of wholesale financial markets, where they serve a useful bridging role between the parties involved. Commercial trusts may differ widely in their purpose and content, but they have in common that the trustee's duties are likely to be closely defined and may be of limited duration.
