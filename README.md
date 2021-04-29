@@ -77,3 +77,5 @@
 >In its very earliest stages, the symptoms of the deadly flu could mimic those of the milder strain of influenza and even the common cold. Moreover, those familiar with the publicity surrounding the famous Typhoid Mary knew that some diseases could be spread by healthy carriers.
 
 >it is a fact that a commercial trust differs from a typical traditional trust in that it arises out of a contract rather than the transfer of property by way of gift. The contract defines the parameters of the trust. Trusts are now commonly part of the machinery used in many commercial transactions, for example across the spectrum of wholesale financial markets, where they serve a useful bridging role between the parties involved. Commercial trusts may differ widely in their purpose and content, but they have in common that the trustee's duties are likely to be closely defined and may be of limited duration.
+
+>Mathematical simulations show that this virus-virus interaction is likely to have a population-wide effect as an increasing prevalence of rhinovirus will reduce the number of new COVID-19 cases.
