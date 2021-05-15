@@ -81,3 +81,5 @@
 >Mathematical simulations show that this virus-virus interaction is likely to have a population-wide effect as an increasing prevalence of rhinovirus will reduce the number of new COVID-19 cases.
 
 >The Health Ministry of the archipelago off of Africa's east coast said Monday that the number of active cases had more than doubled since last week to 2,486 people, and 37% of those have received two vaccine doses.
+
+>Workers, as sellers of their own labor, almost always faced monopsonistic exploitation from employers, the buyers of their labor
