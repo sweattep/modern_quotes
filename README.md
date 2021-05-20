@@ -83,3 +83,5 @@
 >The Health Ministry of the archipelago off of Africa's east coast said Monday that the number of active cases had more than doubled since last week to 2,486 people, and 37% of those have received two vaccine doses.
 
 >Workers, as sellers of their own labor, almost always faced monopsonistic exploitation from employers, the buyers of their labor
+
+>We flatter our rich, connected, controlling members of the society by the language we currently use. This wasn’t always the case. In earlier times we used terms such as robber barons, monopolist, fat cat, or tory of industry. These words and phrases had a derogatory weight to them.
