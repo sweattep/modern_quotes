@@ -89,3 +89,5 @@
 >Overcoming recidivism is not a matter of achieving external, social goals, but more so, one of freeing oneself from internal conditions that have been repressed and unconsciously driving the mind, emotions, and will. This must be understood.
 
 >Isn't it wonderful to imagine that you've been hurt, then wake up and you've not.
+
+>The difficulties of not knowing are always much greater than the effort of learning.
