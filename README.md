@@ -91,3 +91,5 @@
 >Isn't it wonderful to imagine that you've been hurt, then wake up and you've not.
 
 >The difficulties of not knowing are always much greater than the effort of learning.
+
+>the mission has to determine the coalition. The coalition ought not determine the mission.
