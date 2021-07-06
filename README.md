@@ -93,3 +93,5 @@
 >The difficulties of not knowing are always much greater than the effort of learning.
 
 >the mission has to determine the coalition. The coalition ought not determine the mission.
+
+>An entrepreneur has an enormously high energy level and has a very low attention span typically
