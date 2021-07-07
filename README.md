@@ -95,3 +95,5 @@
 >the mission has to determine the coalition. The coalition ought not determine the mission.
 
 >An entrepreneur has an enormously high energy level and has a very low attention span typically
+
+>No Title of Nobility shall be granted by the United States: And no Person holding any Office of Profit or Trust under them, shall, without the Consent of the Congress, accept of any present, Emolument, Office, or Title, of any kind whatever, from any King, Prince, or foreign State.
