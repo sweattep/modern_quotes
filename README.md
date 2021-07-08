@@ -99,3 +99,5 @@
 >No Title of Nobility shall be granted by the United States: And no Person holding any Office of Profit or Trust under them, shall, without the Consent of the Congress, accept of any present, Emolument, Office, or Title, of any kind whatever, from any King, Prince, or foreign State.
 
 >Humans can have 'knowledge about knowledge'
+
+>If you sit around starting to feel sorry for yourself, and blaming everyone else for your position in life, it is like being in quicksand. In quicksand, if you start flailing all about and panicking with each movement you go in deeper, but if you just stay calm and look about, chances are you'll see a twig or something you can reach to pull yourself out. Or, if you stay there long enough someone will come and rescue you.
