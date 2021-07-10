@@ -101,3 +101,5 @@
 >Humans can have 'knowledge about knowledge'
 
 >If you sit around starting to feel sorry for yourself, and blaming everyone else for your position in life, it is like being in quicksand. In quicksand, if you start flailing all about and panicking with each movement you go in deeper, but if you just stay calm and look about, chances are you'll see a twig or something you can reach to pull yourself out. Or, if you stay there long enough someone will come and rescue you.
+
+>Stop trying to be liked by everybody. You don't even like every body.
