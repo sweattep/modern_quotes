@@ -107,3 +107,5 @@
 >Without sales the entire business model is an exercise in frustration
 
 >property ownership, capital, credit, and markets. When considered as a whole, these barriers constitute economic exclusion, not just economic inequality.
+
+>The act of war is the last option of a democracy, taken when there is a grave threat to our national security.
