@@ -109,3 +109,5 @@
 >property ownership, capital, credit, and markets. When considered as a whole, these barriers constitute economic exclusion, not just economic inequality.
 
 >The act of war is the last option of a democracy, taken when there is a grave threat to our national security.
+
+>If you don't have the time to do it right, when will you have the time to do it over?
