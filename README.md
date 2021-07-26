@@ -1,3 +1,5 @@
+>Nothing is longer-term than a short-term solution
+
 >Most people are other people. Their thoughts are someone else's opinions, their lives a mimicry, their passions a quotation.
 
 >Radical can mean going to the root cause of injustice.
