@@ -113,3 +113,5 @@
 >The act of war is the last option of a democracy, taken when there is a grave threat to our national security.
 
 >If you don't have the time to do it right, when will you have the time to do it over?
+
+>The Nintendo way of adapting technology is not to look for the state of the art but to utilize mature technology that can be mass-produced cheaply.
