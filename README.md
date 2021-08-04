@@ -117,3 +117,5 @@
 >The Nintendo way of adapting technology is not to look for the state of the art but to utilize mature technology that can be mass-produced cheaply.
 
 >The essence of games is competition, and I think that's a remnant of our past as animals, and the competition of the survival of the fittest.
+
+>I can't make myself make an outline, but instead jot down countless notes that I never look at, obviously an attempt to stall the inevitable.
