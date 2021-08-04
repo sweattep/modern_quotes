@@ -115,3 +115,5 @@
 >If you don't have the time to do it right, when will you have the time to do it over?
 
 >The Nintendo way of adapting technology is not to look for the state of the art but to utilize mature technology that can be mass-produced cheaply.
+
+>The essence of games is competition, and I think that's a remnant of our past as animals, and the competition of the survival of the fittest.
