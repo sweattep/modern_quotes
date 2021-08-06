@@ -58,6 +58,8 @@
 
 >It's not an odd view, that there isn't much difference between selling yourself and renting yourself.
 
+>You have a choice between starving or selling yourself into tyranny
+
 >Society forms a screen between nature and man.
 
 >If you want to learn to swim jump into the water. On dry land no frame of mind is ever going to help you.
