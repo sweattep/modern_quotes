@@ -123,3 +123,5 @@
 >The essence of games is competition, and I think that's a remnant of our past as animals, and the competition of the survival of the fittest.
 
 >I can't make myself make an outline, but instead jot down countless notes that I never look at, obviously an attempt to stall the inevitable.
+
+>Farming is difficult to make profitable on large scales because inputs are expensive.
