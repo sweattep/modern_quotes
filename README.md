@@ -125,3 +125,5 @@
 >I can't make myself make an outline, but instead jot down countless notes that I never look at, obviously an attempt to stall the inevitable.
 
 >Farming is difficult to make profitable on large scales because inputs are expensive.
+
+>Circumstances seemingly out of my control accentuated gaping discrepancies between who I was portrayed to be and who I was in private
