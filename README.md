@@ -127,3 +127,5 @@
 >Farming is difficult to make profitable on large scales because inputs are expensive.
 
 >Circumstances seemingly out of my control accentuated gaping discrepancies between who I was portrayed to be and who I was in private
+
+>Anecdotes tell us what the data can't
