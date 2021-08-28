@@ -129,3 +129,5 @@
 >Circumstances seemingly out of my control accentuated gaping discrepancies between who I was portrayed to be and who I was in private
 
 >Anecdotes tell us what the data can't
+
+>The person who starts the business is seldom the person who can grow it, and that person is seldom the one who can lead a much larger company. 
