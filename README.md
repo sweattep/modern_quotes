@@ -131,3 +131,5 @@
 >Anecdotes tell us what the data can't
 
 >The person who starts the business is seldom the person who can grow it, and that person is seldom the one who can lead a much larger company. 
+
+>Treatments that take years and billions of dollars to develop are bought in vast volumes by governments with a keen eye on price and are often effective for life after a single dose. That model of extraordinarily high start-up costs, thin margins and minimal repeat business doesn't represent an attractive way for companies to allocate capital.
