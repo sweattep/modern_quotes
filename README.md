@@ -133,3 +133,5 @@
 >The person who starts the business is seldom the person who can grow it, and that person is seldom the one who can lead a much larger company. 
 
 >Treatments that take years and billions of dollars to develop are bought in vast volumes by governments with a keen eye on price and are often effective for life after a single dose. That model of extraordinarily high start-up costs, thin margins and minimal repeat business doesn't represent an attractive way for companies to allocate capital.
+
+>In contrast, in people who were not previously vaccinated, or if the previous vaccine strain cross-reacts minimally with the current vaccine strain, the effectiveness of the current vaccine (even if not a great match to the circulating strain) will be higher. This "negative interference" between vaccines arises from reactivation of the memory responses that are conserved between vaccine strains at the expense of responses to new antigen.
