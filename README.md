@@ -137,3 +137,5 @@
 >In contrast, in people who were not previously vaccinated, or if the previous vaccine strain cross-reacts minimally with the current vaccine strain, the effectiveness of the current vaccine (even if not a great match to the circulating strain) will be higher. This "negative interference" between vaccines arises from reactivation of the memory responses that are conserved between vaccine strains at the expense of responses to new antigen.
 
 >coercive tactics increasingly include use of the web and social media for unremitting personalized harassment of individuals. They also include systematic frivolous legal challenges through the courts
+
+>Although they underwent the pathological process of pneumonia, like most COVID-19 patients, they were blind spots for control interventions based on symptomatic case screening because they never developed symptoms. We did not find chronic asymptomatic carriers in our cohort. There have been no previous cases of human chronic carriers of coronaviruses, including SARS-CoV and MERS-CoV
