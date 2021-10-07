@@ -139,3 +139,5 @@
 >coercive tactics increasingly include use of the web and social media for unremitting personalized harassment of individuals. They also include systematic frivolous legal challenges through the courts
 
 >Although they underwent the pathological process of pneumonia, like most COVID-19 patients, they were blind spots for control interventions based on symptomatic case screening because they never developed symptoms. We did not find chronic asymptomatic carriers in our cohort. There have been no previous cases of human chronic carriers of coronaviruses, including SARS-CoV and MERS-CoV
+
+>Live vaccines, such as measles, MMR and Bacillus Calmette–Guérin (BCG), tend to lower risk (providing a protective influence)
