@@ -143,3 +143,5 @@
 >Live vaccines, such as measles, MMR and Bacillus Calmette–Guérin (BCG), tend to lower risk (providing a protective influence)
 
 >Live attenuated vaccines take more time to develop because they rely on the amplification and weakening of the pathogenic attributes of the original virus. However, they can induce an immune response similar to that induced by a natural infection targeting several viral antigens, and are thus presumably more effective than the other vaccine types, although further studies are needed to provide the necessary evidence. Therefore, live attenuated vaccines are expected to be one of the most effective vaccines against different variants that may arise.
+
+>We didn't exist in the other papers. We were neither born, we didn't get married, we didn't die, we didn't fight in any wars, we never participated in anything of a scientific achievement. We were truly invisible unless we committed a crime.
