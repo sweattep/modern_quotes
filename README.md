@@ -147,3 +147,5 @@
 >We didn't exist in the other papers. We were neither born, we didn't get married, we didn't die, we didn't fight in any wars, we never participated in anything of a scientific achievement. We were truly invisible unless we committed a crime.
 
 >I am aware of being in a beautiful prison, from which I can only escape by writing.
+
+>N95 and P2 masks work best when they are fit-tested, and these masks will be in limited supply during the next pandemic.
