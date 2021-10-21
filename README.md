@@ -151,3 +151,7 @@
 >N95 and P2 masks work best when they are fit-tested, and these masks will be in limited supply during the next pandemic.
 
 >Knowing how to bring water to one of the driest places on earth means that you hold the very key to life itself.
+
+>ACE2 expression is upregulated in the brain vasculature in association with dementia and hypertension, both of which are risk factors for bad outcomes from COVID-19
+
+>Several studies have now shown that the coronavirus spike protein is able to gain access to cells in the testes via the ACE2 receptor, and disrupt male reproduction (Navarra et al., 2020; Wang and Xu, 2020). A paper involving postmortem examination of testicles of six male COVID-19 patients found microscopic evidence of spike protein in interstitial cells in the testes of patients with damaged testicles (Achua et al., 2021).
