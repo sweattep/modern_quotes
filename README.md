@@ -163,3 +163,5 @@
 >This is one scenario that scientists foresee for SARS-CoV-2. The virus sticks around, but once people develop some immunity to it — either through natural infection or vaccination — they won't come down with severe symptoms.
 
 >All laws are selective to some extent, but categories of selection are of paramount concern when a law has the incidental effect of burdening religious practice
+
+>Proponents of the criminal policy of herd immunity have seized on Singapore as an example to push for "opening up" and "living with Covid" once high vaccination rates have been achieved
