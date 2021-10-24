@@ -134,7 +134,7 @@
 
 >Treatments that take years and billions of dollars to develop are bought in vast volumes by governments with a keen eye on price and are often effective for life after a single dose. That model of extraordinarily high start-up costs, thin margins and minimal repeat business doesn't represent an attractive way for companies to allocate capital.
 
->In contrast, in people who were not previously vaccinated, or if the previous vaccine strain cross-reacts minimally with the current vaccine strain, the effectiveness of the current vaccine (even if not a great match to the circulating strain) will be higher. This "negative interference" between vaccines arises from reactivation of the memory responses that are conserved between vaccine strains at the expense of responses to new antigen.
+>In contrast, in people who were not previously vaccinated, or if the previous vaccine strain cross-reacts minimally with the current vaccine strain, the effectiveness of the current vaccine (even if not a great match to the circulating strain) will be higher. This "negative interference"(where vaccinated individuals may be at increased risk for other respiratory viruses because they do not receive the non-specific immunity associated with natural infection) between vaccines arises from reactivation of the memory responses that are conserved between vaccine strains at the expense of responses to new antigen.
 
 >coercive tactics increasingly include use of the web and social media for unremitting personalized harassment of individuals. They also include systematic frivolous legal challenges through the courts
 
