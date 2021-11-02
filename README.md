@@ -165,3 +165,5 @@
 >All laws are selective to some extent, but categories of selection are of paramount concern when a law has the incidental effect of burdening religious practice
 
 >Proponents of the criminal policy of herd immunity have seized on Singapore as an example to push for "opening up" and "living with Covid" once high vaccination rates have been achieved
+
+>Organisations often produce web sites with a content and structure which mirrors the internal concerns of the organisation rather than the needs of the users of the site
