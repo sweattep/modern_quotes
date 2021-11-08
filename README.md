@@ -167,3 +167,7 @@
 >Proponents of the criminal policy of herd immunity have seized on Singapore as an example to push for "opening up" and "living with Covid" once high vaccination rates have been achieved
 
 >Organisations often produce web sites with a content and structure which mirrors the internal concerns of the organisation rather than the needs of the users of the site
+
+>You can't live your life and then end up in a predicament and blame that on anybody else. You got to stand on what you put out there
+
+>I didn't get that power from guns cuz there are no guns in jail. I got that power from books, and from thinking, and by strategizing
