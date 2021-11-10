@@ -171,3 +171,5 @@
 >You can't live your life and then end up in a predicament and blame that on anybody else. You got to stand on what you put out there
 
 >I didn't get that power from guns cuz there are no guns in jail. I got that power from books, and from thinking, and by strategizing
+
+>The idea was to make writing simple web pages, and especially weblog entries, as easy as writing an email
