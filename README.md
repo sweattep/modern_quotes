@@ -185,3 +185,5 @@
 >The idea was to make writing simple web pages, and especially weblog entries, as easy as writing an email
 
 >Pick a product, any product on your desk. Introduce the product. Tell all the problems relating to the product. Tell how the product solves all those problems. Tell the customer where he or she can buy it and how much it costs.
+
+>The decision not to close schools is based on data from China, which show that there’s no sign of children and young people playing a role in `chains` of transmission
