@@ -2,6 +2,8 @@
 
 >Nobody cares about work, homework, responsibilities, or anything when they're laying in a hospital bed or given three months to live
 
+>The ability to move - to walk! - has made all the difference in the world...it is the reason I am alive!
+
 >Nothing is longer-term than a short-term solution
 
 >Most people are other people. Their thoughts are someone else's opinions, their lives a mimicry, their passions a quotation.
