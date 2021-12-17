@@ -196,4 +196,6 @@
 
 >An artist is a product. A product that an entire business is built around. I was neither an entrepreneur, nor an employee. I wasn't a freelancer or a contractor. According to current law, being signed to a record label is a relatively undefined position. I was essentially allowed to use my talent and creativity to pursue my dreams, but only through the investment of others.
 
+>As a senior executive, you get paid to make a small number of high quality decisions
+
 >Every person can be a user, creator and owner of data. Therefore, the new oil has been completely democratised and decentralised
