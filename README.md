@@ -201,3 +201,5 @@
 >As a senior executive, you get paid to make a small number of high quality decisions
 
 >Every person can be a user, creator and owner of data. Therefore, the new oil has been completely democratised and decentralised
+
+>I wouldn't trust myself to write a C++ HTTP application and expose it to the web
