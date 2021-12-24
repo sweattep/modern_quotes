@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>When pride goes up, blessings come down
+
 >Nobody cares about work, homework, responsibilities, or anything when they're laying in a hospital bed or given three months to live
 
 >The ability to move - to walk! - has made all the difference in the world...it is the reason I am alive!
