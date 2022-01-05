@@ -203,3 +203,5 @@
 >Every person can be a user, creator and owner of data. Therefore, the new oil has been completely democratised and decentralised
 
 >I wouldn't trust myself to write a C++ HTTP application and expose it to the web
+
+>Every organization should differentiate itself through exclusive product offers and pricing structures
