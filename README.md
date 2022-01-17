@@ -205,3 +205,5 @@
 >I wouldn't trust myself to write a C++ HTTP application and expose it to the web
 
 >Every organization should differentiate itself through exclusive product offers and pricing structures
+
+>This plainly means that the presence of a single noneducational purpose, if substantial in nature, will destroy the exemption regardless of the number or importance of truly educational purposes.
