@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>Babies don't need money to avoid being homeless
+
 >When pride goes up, blessings come down
 
 >Nobody cares about work, homework, responsibilities, or anything when they're laying in a hospital bed or given three months to live
