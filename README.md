@@ -217,3 +217,5 @@
 >Hiroshi Tanaka took his product team out for beers and asked why a copier drum couldn't be made using the same process used to make a beer can — in other words, could it be cheap and disposable.
 
 >Organisations often produce web sites with a content and structure which mirrors the internal concerns of the organisation rather than the needs of the users of the site.
+
+>Eat your food as your medicine, otherwise you have to eat medicine as your food.
