@@ -220,4 +220,4 @@
 
 >Eat your food as your medicine, otherwise you have to eat medicine as your food.
 
->Those who avoid enormities of sin and abominations, save the unwilled offences - (for them) lo! thy Lord is of vast mercy. He is Best Aware of you (from the time) when He created you from the earth, and when ye were hidden in the bellies of your mothers. Therefor ascribe not purity unto yourselves. He is Best Aware of him who wardeth off (evil).
+>With all of you men out there who think that having a thousand different ladies is pretty cool, I have learned in my life I've found out that having one woman a thousand different times is much more satisfying.
