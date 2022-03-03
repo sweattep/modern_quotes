@@ -223,3 +223,5 @@
 >With all of you men out there who think that having a thousand different ladies is pretty cool, I have learned in my life I've found out that having one woman a thousand different times is much more satisfying.
 
 >I learned everything it takes to become a superstar while in WWE. That's understanding merchandise, knowing how to look for the hard camera in a match, presenting myself a certain way in interviews.
+
+> Don't think...FEEL! It is like a finger pointing away to the moon. Don't concentrate on the finger or you will miss all that heavenly glory!
