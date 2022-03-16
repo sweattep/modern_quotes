@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>The user interface is the product
+
 >Babies don't need money to avoid being homeless
 
 >When pride goes up, blessings come down
