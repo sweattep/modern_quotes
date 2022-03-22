@@ -2,6 +2,8 @@
 
 >The user interface is the product
 
+>Properties of the object being enumerated may be deleted during enumeration
+
 >Babies don't need money to avoid being homeless
 
 >When pride goes up, blessings come down
