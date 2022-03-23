@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>We don't advocate for particular policies or reforms
+
 >The user interface is the product
 
 >Properties of the object being enumerated may be deleted during enumeration
