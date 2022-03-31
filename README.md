@@ -241,3 +241,5 @@
 >You can make a living trust to avoid probate for virtually any asset you own &mdash; real estate, bank accounts, vehicles, and so on. At your death, your successor trustee will be able to transfer it to the trust beneficiaries without probate court proceedings
 
 >congress appropriates military funds with alacrity and generosity. It appropriates poverty funds with miserlyness and grudging reluctance.
+
+>Say to them, the death you try to flee from will meet you; then you will be conveyed back to him who knows the unseen and the witnessed. Then he will inform you of all that you have done
