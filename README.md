@@ -84,6 +84,8 @@
 
 >If I could start from scratch, I'd sign to Def Jam...
 
+>Ty Lue was sitting right next to me, it ain't going to be much different...
+
 >Ignorance allied with power is the most ferocious enemy justice can have
 
 >The attitude is that IF you can pay the typical mortgage off in full, you are then free and easy. Sorry, not so. You will ALWAYS have the typical costs of upkeep and repair. But that's not all. Even more onerous are all those property TAXES that comes with home ownership. And this is one payment you HAVE to make, or you will lose that home due to tax foreclosure. So in the end...you really own nothing. You are just a glorified renter.
