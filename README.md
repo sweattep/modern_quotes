@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>I'm a point guard. If I'm 0-for-f-----g-9, I'm not shooting 20 more shots. Not going to happen. I'm a point guard. I'm going to find somebody else.
+>
 >We don't advocate for particular policies or reforms
 
 >The user interface is the product
