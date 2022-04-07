@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>Change never changes
+
 >I'm a point guard. If I'm 0-for-f-----g-9, I'm not shooting 20 more shots. Not going to happen. I'm a point guard. I'm going to find somebody else.
 
 >We don't advocate for particular policies or reforms
@@ -12,7 +14,7 @@
 
 >Babies don't need money to avoid being homeless
 
->When pride goes up, blessings come down
+>When pride goes, blessings come
 
 >Nobody cares about work, homework, responsibilities, or anything when they're laying in a hospital bed or given three months to live
 
