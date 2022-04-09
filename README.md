@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>Many of the things we do for fun (and work) count as exercise
+
 >Change never changes
 
 >I'm a point guard. If I'm 0-for-f-----g-9, I'm not shooting 20 more shots. Not going to happen. I'm a point guard. I'm going to find somebody else.
