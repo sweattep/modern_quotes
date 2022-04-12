@@ -251,3 +251,5 @@
 >You can make a living trust to avoid probate for virtually any asset you own &mdash; real estate, bank accounts, vehicles, and so on. At your death, your successor trustee will be able to transfer it to the trust beneficiaries without probate court proceedings
 
 >congress appropriates military funds with alacrity and generosity. It appropriates poverty funds with miserlyness and grudging reluctance.
+
+>For example, the Copyright Office&mdash;which holds records of every copyright ever registered, including all those works which have passed into the public domain&mdash;could help catalogue the public domain and prevent it from being swept up by today’s already-overzealous automated filtering technologies
