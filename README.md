@@ -12,6 +12,8 @@
 
 >The user interface is the product
 
+>Authentication simply identifies a party, authorization defines whether or not they can perform one or more actions
+   
 >Properties of the object being enumerated may be deleted during enumeration
 
 >Babies don't need money to avoid being homeless
