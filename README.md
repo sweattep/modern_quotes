@@ -257,3 +257,5 @@
 >congress appropriates military funds with alacrity and generosity. It appropriates poverty funds with miserlyness and grudging reluctance.
 
 >For example, the Copyright Office&mdash;which holds records of every copyright ever registered, including all those works which have passed into the public domain&mdash;could help catalogue the public domain and prevent it from being swept up by today’s already-overzealous automated filtering technologies
+
+>Currently, there is lack of economical incentive given that available processes used in recycling batteries to reclaim metals require 6-10 times more energy than extracting/refining those metals from ores.
