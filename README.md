@@ -260,4 +260,6 @@
 
 >Currently, there is lack of economical incentive given that available processes used in recycling batteries to reclaim metals require 6-10 times more energy than extracting/refining those metals from ores.
 
->The exclusive  and discriminating practices of the companies serving the national market created a protected  environment
+>The exclusive  and discriminating practices of the companies serving the national market created a protected environment
+
+>There is some suggestion that the closer the phone is to the body, the higher the readings. But for a single test, every measurement at 2 mm from the simulated body was higher than from 5 or 10 mm. That does raise questions about the distance that manufacturers choose before a phone makes it to market.
