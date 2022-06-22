@@ -265,3 +265,5 @@
 >The exclusive  and discriminating practices of the companies serving the national market created a protected environment
 
 >There is some suggestion that the closer the phone is to the body, the higher the readings. But for a single test, every measurement at 2 mm from the simulated body was higher than from 5 or 10 mm. That does raise questions about the distance that manufacturers choose before a phone makes it to market.
+
+>In the history of man, there's no other profession except slavery where one man is tied to one owner for the rest of his life.
