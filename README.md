@@ -4,6 +4,8 @@
 
 >Many of the things we do for fun (and work) count as exercise
 
+>Do what only you can do
+
 >Change never changes
 
 >I'm a point guard. If I'm 0-for-f-----g-9, I'm not shooting 20 more shots. Not going to happen. I'm a point guard. I'm going to find somebody else.
