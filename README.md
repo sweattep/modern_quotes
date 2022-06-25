@@ -271,3 +271,5 @@
 >There is some suggestion that the closer the phone is to the body, the higher the readings. But for a single test, every measurement at 2 mm from the simulated body was higher than from 5 or 10 mm. That does raise questions about the distance that manufacturers choose before a phone makes it to market.
 
 >In the history of man, there's no other profession except slavery where one man is tied to one owner for the rest of his life.
+
+>I was going through old math/sketching graph paper notebooks and didn't want to lose some of the work in them, so I started scanning pages. I took the more comic-y ones and put them up on a server I was testing out, and got a bunch of readers when BoingBoing linked to me. I started drawing more seriously, gained a lot more readers, started selling t-shirts on the site, and am currently shipping t-shirts and drawing this comic full-time.
