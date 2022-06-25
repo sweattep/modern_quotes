@@ -28,6 +28,8 @@
 
 >Nobody cares about work, homework, responsibilities, or anything when they're laying in a hospital bed or given three months to live
 
+>When I was a barber, me being extreme was how I got popular: you name it, I was drawing it on someone's head.
+
 >The ability to move - to walk! - has made all the difference in the world...it is the reason I am alive!
 
 >Nothing is longer-term than a short-term solution
