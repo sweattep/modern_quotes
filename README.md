@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>if you give humans a modicum of anonymity and a platform...
+
 >Envy concerns what you would like to have but don't possess, whereas jealousy concerns what you have and do not wish to lose.
 
 >Many of the things we do for fun (and work) count as exercise
