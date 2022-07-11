@@ -277,3 +277,5 @@
 >I was going through old math/sketching graph paper notebooks and didn't want to lose some of the work in them, so I started scanning pages. I took the more comic-y ones and put them up on a server I was testing out, and got a bunch of readers when BoingBoing linked to me. I started drawing more seriously, gained a lot more readers, started selling t-shirts on the site, and am currently shipping t-shirts and drawing this comic full-time.
 
 >There is nothing a mere scientist can say that will stand against the flood of a hundred million dollars. But there is one quality that cannot be purchased in this way&mdash;and that is reliability. The price of reliability is the pursuit of the utmost simplicity. It is a price which the very rich find most hard to pay.
+
+>When the 'threat' is over, however, they never give us our freedoms back.
