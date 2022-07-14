@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>"I'm going to create a videogame on day" is the new "I'm going to write a book one day" lie we all tell ourselves
+
 >if you give humans a modicum of anonymity and a platform...
 
 >Envy concerns what you would like to have but don't possess, whereas jealousy concerns what you have and do not wish to lose.
