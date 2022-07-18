@@ -283,3 +283,7 @@
 >There is nothing a mere scientist can say that will stand against the flood of a hundred million dollars. But there is one quality that cannot be purchased in this way&mdash;and that is reliability. The price of reliability is the pursuit of the utmost simplicity. It is a price which the very rich find most hard to pay.
 
 >When the 'threat' is over, however, they never give us our freedoms back.
+
+>Radiation has long been associated with the development of primary cancers and, when used as treatment, imparts a risk for the development of a second cancer.
+
+>Leukemia as a secondary cancer can occur following treatment with chemotherapy.
