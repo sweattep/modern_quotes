@@ -295,3 +295,6 @@
 >The clinical and molecular studies presented clearly indicate that physical activity leads to metabolic transformations resulting in a decrease of CRC risk. Additionally, weight reduction induced by physical exercise in overweight and obese individuals might also be protective.
 
 >Curcumin is effective in promoting apoptosis and inhibiting DNA mutations, cancer cell proliferation, metastasis, and inflammation.
+
+>Yogurt consumption does not increase circulating IGF-1 as has been shown for other dairy products. Probiotics - the beneficial living microorganisms enriched in yogurt – could also influence the mucosal immune system and its integration with the mammary glands. Probiotics and fermented dairy products have been shown to boost intestinal
+microbiome richness, which might increase urinary estrogen73; induce apoptosis of breast cancer cell lines
