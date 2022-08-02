@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>a coward will never fight a man who is equal
+
 >I'm not no teacher, as you can tell from how I speak. I'm just a voice from the crowd.
 
 >"I'm going to create a videogame one day" is the new "I'm going to write a book one day" lie we all tell ourselves
