@@ -301,3 +301,5 @@
 >Yogurt consumption does not increase circulating IGF-1 as has been shown for other dairy products. Probiotics - the beneficial living microorganisms enriched in yogurt – could also influence the mucosal immune system and its integration with the mammary glands. Probiotics and fermented dairy products have been shown to boost intestinal microbiome richness, which might increase urinary estrogen73; induce apoptosis of breast cancer cell lines
 
 >we need to give kids projects that allow them to exercise their minds and discover things for themselves. Instead of stuffing them with `knowledge` we need to give them the power to find out what they want to know.
+
+>Domain experience trumps everything
