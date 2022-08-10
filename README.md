@@ -303,3 +303,5 @@
 >we need to give kids projects that allow them to exercise their minds and discover things for themselves. Instead of stuffing them with `knowledge` we need to give them the power to find out what they want to know.
 
 >Domain experience trumps everything
+
+>Machine learning or more simply put, automated data modeling, is essentially the machine's ability to identify matches based on a model created by similar data.
