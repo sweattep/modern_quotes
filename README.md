@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>I just want to create something for myself that other people find useful
+
 >a coward will never fight a man who is equal
 
 >I'm not no teacher, as you can tell from how I speak. I'm just a voice from the crowd.
