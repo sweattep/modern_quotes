@@ -313,3 +313,5 @@
 >The streets don't dictate the culture—corporations do. The streets simply respond to what's given. And what's given is accepted as the new normal because, to many people, there's no visible alternative
 
 >Don't assume the worst about people &mdash; instead, offer patience and kindness.
+
+>Most child services agencies pointed out that it is legal for them to apply to Social Security to become the financial representative for foster children's benefits
