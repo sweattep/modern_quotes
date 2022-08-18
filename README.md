@@ -310,8 +310,10 @@
 
 >Oftentimes, the reporters are sitting at their desks taking the same feed, therefore writing the same story. They’re not reporters, they're stenographers. The difference is the pretty person standing in front of the chroma key—which is often a picture of a place they’ve never been.
 
->The streets don't dictate the culture—corporations do. The streets simply respond to what's given. And what's given is accepted as the new normal because, to many people, there's no visible alternative
+>The streets don't dictate the culture &mdash; corporations do. The streets simply respond to what's given. And what's given is accepted as the new normal because, to many people, there's no visible alternative
 
 >Don't assume the worst about people &mdash; instead, offer patience and kindness.
 
 >Most child services agencies pointed out that it is legal for them to apply to Social Security to become the financial representative for foster children's benefits
+
+>A bite on the leg might indicate a lack of balance; a bite on the wrist might mean your loyalty to someone or something is holding you back.
