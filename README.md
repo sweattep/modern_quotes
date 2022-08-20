@@ -319,3 +319,5 @@
 >A bite on the leg might indicate a lack of balance; a bite on the wrist might mean your loyalty to someone or something is holding you back.
 
 >The fundamental idea is that if you automate the current manual practice, all you'll get is a fast ineffective practice.
+
+>Traditional centralized systems and databases are vulnerable to data corruption as well as data theft risks. That's because anyone with sufficient credentials can alter the contents of a database without leaving a trace.
