@@ -4,6 +4,8 @@
 
 >a coward will never fight a man who is equal
 
+>The enjoyment of one's tools is an essential ingredient of successful work.
+>
 >I'm not no teacher, as you can tell from how I speak. I'm just a voice from the crowd.
 
 >"I'm going to create a videogame one day" is the new "I'm going to write a book one day" lie we all tell ourselves
