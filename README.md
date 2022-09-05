@@ -4,6 +4,8 @@
 
 >a coward will never fight a man who is equal
 
+>When designing an experience we need to keep the result as close to the action as possible.
+
 >The enjoyment of one's tools is an essential ingredient of successful work.
 >
 >I'm not no teacher, as you can tell from how I speak. I'm just a voice from the crowd.
