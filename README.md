@@ -7,7 +7,11 @@
 >When designing an experience we need to keep the result as close to the action as possible.
 
 >The enjoyment of one's tools is an essential ingredient of successful work.
->
+
+>Some data types, workflows, or complex test scenarios can only be tested in production.
+
+>The amount of data, the load and the variety of user scenarios, sometimes caused by unintended usage, makes it utterly difficult to test every possible outcome
+
 >I'm not no teacher, as you can tell from how I speak. I'm just a voice from the crowd.
 
 >"I'm going to create a videogame one day" is the new "I'm going to write a book one day" lie we all tell ourselves
