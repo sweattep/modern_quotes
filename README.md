@@ -6,6 +6,10 @@
 
 >When designing an experience we need to keep the result as close to the action as possible.
 
+>Time is not an object
+
+>Synchronous communication is not possible
+
 >The enjoyment of one's tools is an essential ingredient of successful work.
 
 >Some data types, workflows, or complex test scenarios can only be tested in production.
