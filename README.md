@@ -343,3 +343,5 @@
 >1N73LL1G3NC3 15 7H3 4B1L1TY 2 4D4P7 2 CH4NG3
 
 >I always believe that the easy way is the right way
+
+>Make your own shows with private funding and get them out there asap and everywhere you can
