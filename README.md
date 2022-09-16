@@ -345,3 +345,5 @@
 >I always believe that the easy way is the right way
 
 >Make your own shows with private funding and get them out there asap and everywhere you can
+
+>Authentic community can’t be top-down or transactional
