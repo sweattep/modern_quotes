@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>No one teaches us how to run our own businesses
+ 
 >I just want to create something for myself that other people find useful
 
 >a coward will never fight a man who is equal
