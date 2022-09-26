@@ -351,3 +351,5 @@
 >Authentic community can’t be top-down or transactional
 
 >Was Jesus homeless?
+
+>Light has no meaning without darkness
