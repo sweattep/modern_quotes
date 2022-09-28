@@ -268,7 +268,7 @@
 
 >Hiroshi Tanaka took his product team out for beers and asked why a copier drum couldn't be made using the same process used to make a beer can — in other words, could it be cheap and disposable.
 
->Newspapers such as the `Baltimore Afro-American, the `Chicago Defender`, the `Norfolk Journal and Guide`, and the `Pittsburgh Courier` made rapid strides both in circulation and influence.
+>Newspapers such as the Baltimore Afro-American, the Chicago Defender, the Norfolk Journal and Guide, and the Pittsburgh Courier made rapid strides both in circulation and influence.
 
 >Organisations often produce web sites with a content and structure which mirrors the internal concerns of the organisation rather than the needs of the users of the site.
 
