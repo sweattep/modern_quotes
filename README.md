@@ -355,3 +355,5 @@
 >Was Jesus homeless?
 
 >Light has no meaning without darkness
+
+>If you can sell water you can sell anything
