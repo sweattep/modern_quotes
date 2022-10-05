@@ -2,6 +2,8 @@
 
 >No one teaches us how to run our own businesses
  
+>true RDBMSs require knowledge of data and relational fundamentals and such is scarce today, because education has been replaced by sheer training
+
 >I just want to create something for myself that other people find useful
 
 >a coward will never fight a man who is equal
