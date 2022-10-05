@@ -357,3 +357,5 @@
 >Light has no meaning without darkness
 
 >If you can sell water you can sell anything
+
+>I don't want to be forgotten, if I'm forgotten, that means I'm comfortable
