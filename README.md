@@ -363,3 +363,5 @@
 >I don't want to be forgotten, if I'm forgotten, that means I'm comfortable
 
 >All society is doing is leeching off the ghetto
+
+>god's coming she just taking her time
