@@ -371,3 +371,5 @@
 >The original iPod was not much more than a hard drive: an incredibly efficient computer memory device that uses simple magnetism to store vast amounts of information.
 
 >6% of 30 is the same as 30% of 6
+
+>Courage is somewhere between cowardice and recklessness. Confidence between crippling self-doubt and blinding arrogance. Hard work between workaholism and laziness.
