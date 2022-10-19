@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>Gift cards or gift certificates that can be redeemed only for goods or services, and not for cash, are allowed.
+>
 >No one teaches us how to run our own businesses
  
 >Money is just a bunch of digits floating in a field of magnets; it is no longer a piece of paper with arbitrary value; it is just an accountant's wet dream
