@@ -4,8 +4,10 @@
 >
 >No one teaches us how to run our own businesses
  
+>I grew the company size too quickly. I apologize for that
+
 >The past stuff was so poorly documented that it was essentially useless to anyone that hadn't dug through the code themselves to figure out what was actually there.
->
+
 >Money is just a bunch of digits floating in a field of magnets; it is no longer a piece of paper with arbitrary value; it is just an accountant's wet dream
 
 >true RDBMSs require knowledge of data and relational fundamentals and such is scarce today, because education has been replaced by sheer training
