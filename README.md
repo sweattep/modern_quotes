@@ -1,7 +1,7 @@
 >I've always been a gamer
 
 >Gift cards or gift certificates that can be redeemed only for goods or services, and not for cash, are allowed.
->
+
 >No one teaches us how to run our own businesses
  
 >I grew the company size too quickly. I apologize for that
@@ -149,6 +149,8 @@
 >You are replaceable to your company, but not to your loved ones
 
 >You cannot write an email while making a presentation
+
+>We weren't necessarily seen as human beings, we were objects to be studied.
 
 >Ultimately, Mary was traced to a total of around 50 typhoid cases and three deaths. This is tragic, no doubt, but George Soper himself later admitted that this was not as large a toll as other carriers who were discovered after Mary received a life sentence in quarantine.
 
