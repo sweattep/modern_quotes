@@ -381,3 +381,5 @@
 >6% of 30 is the same as 30% of 6
 
 >Courage is somewhere between cowardice and recklessness. Confidence between crippling self-doubt and blinding arrogance. Hard work between workaholism and laziness.
+
+>Never forget that intelligence rules the world and ignorance carries the burden
