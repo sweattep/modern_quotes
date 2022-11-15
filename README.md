@@ -383,3 +383,5 @@
 >Courage is somewhere between cowardice and recklessness. Confidence between crippling self-doubt and blinding arrogance. Hard work between workaholism and laziness.
 
 >Never forget that intelligence rules the world and ignorance carries the burden
+
+>What's your alma mater? Books
