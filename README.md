@@ -4,6 +4,8 @@
 
 >No one teaches us how to run our own businesses
 
+>After working twelve hours, how can a man go to the library?
+>
 >The settlement in the second case featured a quid pro quo: employees would be reclassified in order to get overtime but would give up their stock options
 >
 >Besides learning propositional logic, I could've skipped college and went straight to building a better 21 blackjack
