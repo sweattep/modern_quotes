@@ -4,8 +4,10 @@
 
 >No one teaches us how to run our own businesses
 
->Besides learning propositional logic, I could've skipped college and went straight to building a better 21 blackjack
+>The settlement in the second case featured a quid pro quo: employees would be reclassified in order to get overtime but would give up their stock options
 >
+>Besides learning propositional logic, I could've skipped college and went straight to building a better 21 blackjack
+
 >I grew the company size too quickly. I apologize for that
 
 >The past stuff was so poorly documented that it was essentially useless to anyone that hadn't dug through the code themselves to figure out what was actually there.
