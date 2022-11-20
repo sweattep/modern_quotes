@@ -10,6 +10,8 @@
 
 >The settlement in the second case featured a quid pro quo: employees would be reclassified in order to get overtime but would give up their stock options
 
+>To prove that you are poor, get it in writing. To prove that you are rich, get a rich lawyer.
+
 >Besides learning propositional logic, I could've skipped college and went straight to building a better 21 blackjack
 
 >I grew the company size too quickly. I apologize for that
