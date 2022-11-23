@@ -395,3 +395,5 @@
 >Never forget that intelligence rules the world and ignorance carries the burden
 
 >What's your alma mater? Books
+
+>The creating individual is always more important than any established style or system
