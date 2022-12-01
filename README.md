@@ -6,6 +6,8 @@
 
 >No one teaches us how to run our own businesses
 
+>About damn time! Pooncoo
+
 >After working twelve hours, how can a man go to the library?
 
 >There is no difficulty in getting men to look after their own property.
