@@ -8,6 +8,8 @@
 
 >About damn time! Pooncoo
 
+>He challenged the norms and transformed mindsets of what was perceived to be possible to create new visions for success while inspiring the community and creating a spotlight on HBCU sports and culture.
+
 >After working twelve hours, how can a man go to the library?
 
 >There is no difficulty in getting men to look after their own property.
