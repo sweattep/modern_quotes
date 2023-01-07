@@ -411,3 +411,5 @@
 >I had trouble making tough decisions. I was not any good at the job interview process, and I made mistakes. I found it very difficult to fire anyone. I didn't make major decisions that required some boldness, like adding new cities.
 
 >Big ran New York. 2Pac ran America.
+
+>There are infinite combinations once you consider the variables of grip, speed, and angle
