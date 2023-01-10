@@ -413,3 +413,5 @@
 >Big ran New York. 2Pac ran America.
 
 >There are infinite combinations once you consider the variables of grip, speed, and angle
+
+>I started seeing guys who would typically show up wearing a sport coat, nice pair of jeans, loafers showing up to work. Executives showing up and you know before I knew it they're all wearing dark blue suits, white shirts, red ties and wingtip shoes because that was the culture
