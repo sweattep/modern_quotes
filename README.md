@@ -415,3 +415,5 @@
 >There are infinite combinations once you consider the variables of grip, speed, and angle
 
 >corporate culture basically consuming the entrepreneurial culture 
+
+>exercise is the most underutilized anti-depressant
