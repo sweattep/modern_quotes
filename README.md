@@ -10,6 +10,8 @@
 
 >Employees are being encouraged to say no to meetings and to remove themselves from large internal chat groups
 
+>McMahon owns about 92% of outstanding Class B shares, which contain 10 votes per share, whereas Class A shares hold only one vote per share.
+>
 >He challenged the norms and transformed mindsets of what was perceived to be possible to create new visions for success while inspiring the community and creating a spotlight on HBCU sports and culture.
 
 >Philadelphia without Iverson was a CBA team
