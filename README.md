@@ -419,3 +419,7 @@
 >corporate culture basically consuming the entrepreneurial culture 
 
 >exercise is the most underutilized anti-depressant
+
+>lead us against our enemies, don't lead us against each other
+
+>invent a society, a social system, an economic system, a political system, that is different from anything that exists or has ever existed anywhere on this earth
