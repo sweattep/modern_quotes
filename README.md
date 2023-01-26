@@ -425,3 +425,5 @@
 >invent a society, a social system, an economic system, a political system, that is different from anything that exists or has ever existed anywhere on this earth
 
 >If you can't work two jobs or create a company that spits out profits to invest or get customers to pay you first or create personal savings, you probably won't do the much harder work of raising money and building a real business.
+
+>Today, very few decisions are made with complete information. Even the simplest decisions often have innumerable potential outcomes, and for high-impact decision-making, such as in epidemic planning, it is not possible for a person to evaluate all possible options.
