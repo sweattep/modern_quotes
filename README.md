@@ -429,3 +429,5 @@
 >Today, very few decisions are made with complete information. Even the simplest decisions often have innumerable potential outcomes, and for high-impact decision-making, such as in epidemic planning, it is not possible for a person to evaluate all possible options.
 
 >The women are going to deal with you anyway, because of who you are
+
+>anything lost can be found again, except for time wasted (Samuel L Jackson in Fresh)
