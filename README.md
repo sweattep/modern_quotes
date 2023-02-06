@@ -11,7 +11,7 @@
 >Employees are being encouraged to say no to meetings and to remove themselves from large internal chat groups
 
 >McMahon owns about 92% of outstanding Class B shares, which contain 10 votes per share, whereas Class A shares hold only one vote per share.
->
+
 >He challenged the norms and transformed mindsets of what was perceived to be possible to create new visions for success while inspiring the community and creating a spotlight on HBCU sports and culture.
 
 >Philadelphia without Iverson was a CBA team
@@ -27,6 +27,8 @@
 >Besides learning propositional logic, I could've skipped college and went straight to building a better 21 blackjack
 
 >I grew the company size too quickly. I apologize for that
+
+>If you have a need for an IOC framework, it may be an indicator that your service is too big
 
 >The past stuff was so poorly documented that it was essentially useless to anyone that hadn't dug through the code themselves to figure out what was actually there.
 
