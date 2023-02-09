@@ -435,3 +435,7 @@
 >anything lost can be found again, except for time wasted (Samuel L Jackson in Fresh)
 
 >could a man enjoy being awakened at 6:30 a.m. by an alarm clock
+
+>those who commit the murders write the reports
+
+>when an old man dies, a library burns to the ground
