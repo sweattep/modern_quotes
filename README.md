@@ -439,3 +439,5 @@
 >those who commit the murders write the reports
 
 >when an old man dies, a library burns to the ground
+
+>The way to right wrongs is to turn the light of truth upon them.
