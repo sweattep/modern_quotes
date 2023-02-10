@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>Math is the opposite of learning by example
+
 >The greater the outward show, the greater the inward poverty
 
 >Gift cards or gift certificates that can be redeemed only for goods or services, and not for cash, are allowed.
