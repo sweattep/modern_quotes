@@ -2,6 +2,9 @@
 
 >Math is the opposite of learning by example
 
+>If you spend too much time thinking about a thing, you'll never get it done.
+>
+
 >The greater the outward show, the greater the inward poverty
 
 >Gift cards or gift certificates that can be redeemed only for goods or services, and not for cash, are allowed.
