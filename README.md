@@ -450,3 +450,7 @@
 >The way to right wrongs is to turn the light of truth upon them.
 
 >Humans are much more effective at solving some types of problems, like finding specific objects in pictures, evaluating beauty, or translating text.
+
+>It is better to light a candle in the dark than to curse the darkness.
+
+>You only see a rainbow after it rains...
