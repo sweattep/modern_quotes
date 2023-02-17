@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>Do what you gotta do but know you gotta change, try to find a way to make it out the game
+
 >Math is the opposite of learning by example
 
 >If you spend too much time thinking about a thing, you'll never get it done.
