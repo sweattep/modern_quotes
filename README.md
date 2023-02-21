@@ -5,7 +5,8 @@
 >Math is the opposite of learning by example
 
 >If you spend too much time thinking about a thing, you'll never get it done.
->
+
+>Not just leaving Twitter, but the whole show.
 
 >The greater the outward show, the greater the inward poverty
 
