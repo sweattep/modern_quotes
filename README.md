@@ -4,6 +4,8 @@
 
 >Math is the opposite of learning by example
 
+>he who listens not to a few words of wisdom, will never listen, even unto a multitude
+
 >If you spend too much time thinking about a thing, you'll never get it done.
 
 >Not just leaving Twitter, but the whole show.
