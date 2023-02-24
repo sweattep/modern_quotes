@@ -168,6 +168,8 @@
 
 >You have a choice between starving or selling yourself into tyranny
 
+>Every modern brand wants to become part of the culture with or without appropriating it
+
 >Society forms a screen between nature and man.
 
 >If you want to learn to swim jump into the water. On dry land no frame of mind is ever going to help you.
