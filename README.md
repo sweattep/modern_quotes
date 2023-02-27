@@ -465,3 +465,5 @@
 >It is better to light a candle in the dark than to curse the darkness.
 
 >You only see a rainbow after it rains...
+
+>The automation of data-driven stories has freed up journalists to focus on writing critical, qualitative articles.
