@@ -469,3 +469,5 @@
 >The automation of data-driven stories has freed up journalists to focus on writing critical, qualitative articles.
 
 >Control is an illusion
+
+>Evil words are for evil women, and they are for evil men
