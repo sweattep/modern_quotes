@@ -475,3 +475,13 @@
 >Square numbers can only end with 0, 1, 4, 6, 9, or 25
 
 >There is no uniform definition of a franchise
+
+>Embrace, extend, extinguish 
+
+>Taking deposits and investing in reserves is a risk free business
+
+>Girls mature faster than boys, cost more to raise, and statistics show that the old saw about girls not knowing about money and figures is a myth.
+
+>The greatest pleasure in life is doing what people say you cannot do.
+
+>Do what you gotta do but know you gotta change, try to find a way to make it out the game
