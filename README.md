@@ -485,3 +485,5 @@
 >The greatest pleasure in life is doing what people say you cannot do.
 
 >Do what you gotta do but know you gotta change, try to find a way to make it out the game
+
+>The goal is no longer, as it was in antiquity, to train people for careers as human beings, but to train them for careers as clerks or professors &emdash; that is to say, as specialists, theoreticians and retainers of specific items of more or less esoteric knowledge.
