@@ -471,3 +471,5 @@
 >Control is an illusion
 
 >Evil words are for evil women, and they are for evil men
+
+>Square numbers can only end with 0, 1, 4, 6, 9, or 25
