@@ -487,3 +487,7 @@
 >Do what you gotta do but know you gotta change, try to find a way to make it out the game
 
 >The goal is no longer, as it was in antiquity, to train people for careers as human beings, but to train them for careers as clerks or professors &emdash; that is to say, as specialists, theoreticians and retainers of specific items of more or less esoteric knowledge.
+
+>Do not choose your future profession for money. Profession should be chosen like a wife-for love
+
+>When I was in the mortgage business, at the end of the year they would write me a big, fat check. I say keep your check.
