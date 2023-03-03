@@ -493,3 +493,5 @@
 >When I was in the mortgage business, at the end of the year they would write me a big, fat check. I say keep your check.
 
 >I doubt everyone, even those who are supposed to protect us
+
+>It's never good when the training room and strength coaches aren't on the same page
