@@ -495,3 +495,5 @@
 >I doubt everyone, even those who are supposed to protect us
 
 >It's never good when the training room and strength coaches aren't on the same page
+
+>we got money too, we just aint put it in music like that
