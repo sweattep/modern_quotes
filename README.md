@@ -497,3 +497,5 @@
 >It's never good when the training room and strength coaches aren't on the same page
 
 >we got money too, we just aint put it in music like that
+
+>By design, ChatGPT aspires to be the most mediocre web content you can imagine
