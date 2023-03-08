@@ -501,3 +501,7 @@
 >By design, ChatGPT aspires to be the most mediocre web content you can imagine
 
 >I'd taken to calling myself a 'digital garbageman' for a time, because that's essentially what I was. I had some corp jobs, and it was mostly cleaning up other peoples' code. I said it tongue-in-cheek, but I did feel that way, and eventually left corporate work to hang out my own shingle.
+
+>tax systems designed to force the population into the labor market through debt
+
+>Someone with nothing to sell but his or her body cannot in any sense by considered a genuinely free agent
