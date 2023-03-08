@@ -511,3 +511,5 @@
 >we don't buy things we don't need with money we don't have to impress people we don't like
 
 >When the other guy does something that you do, do it their way. That's how you build.
+
+>There is a high likelihood that you are going to build something that is rarely or never used
