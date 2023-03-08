@@ -505,3 +505,5 @@
 >tax systems designed to force the population into the labor market through debt
 
 >Someone with nothing to sell but his or her body cannot in any sense by considered a genuinely free agent
+
+>It is terrifying to be left alone with yourself, when you don’t know who yourself is.
