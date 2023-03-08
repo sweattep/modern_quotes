@@ -509,3 +509,5 @@
 >It is terrifying to be left alone with yourself, when you don’t know who yourself is.
 
 >we don't buy things we don't need with money we don't have to impress people we don't like
+
+>When the other guy does something that you do, do it their way. That's how you build.
