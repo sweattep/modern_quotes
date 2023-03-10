@@ -517,3 +517,5 @@
 >There is a high likelihood that you are going to build something that is rarely or never used
 
 >Who's torturing the kids with the proverbial pop quiz?
+
+>People are quicker to correct a wrong answer than to answer a question
