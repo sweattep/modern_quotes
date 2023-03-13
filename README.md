@@ -521,3 +521,5 @@
 >Who's torturing the kids with the proverbial pop quiz?
 
 >People are quicker to correct a wrong answer than to answer a question
+
+>Gambling and sports betting have completely taken the purity and the fun away from the game at times.
