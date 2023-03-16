@@ -525,3 +525,5 @@
 >Gambling and sports betting have completely taken the purity and the fun away from the game at times.
 
 >I'd rather be the owner than be owned
+
+>You get on my nerves, curse you with proverbs
