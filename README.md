@@ -531,3 +531,5 @@
 >You get on my nerves, curse you with proverbs
 
 >Strong typing is a bad choice for loosely coupled distributed systems. The moment you need to change anything, the type signature changes
+
+>I cannot fix men and raise my son
