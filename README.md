@@ -1,7 +1,9 @@
 >I've always been a gamer
 
+>Human nature does not change
+
 >If a man guards a book year after year, which is more important, the man or the book?
->
+
 >A book will outlive a man, a tool will outlive a book, a song will outlive them all
 
 >Do what you gotta do but know you gotta change, try to find a way to make it out the game
