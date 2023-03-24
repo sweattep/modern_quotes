@@ -528,6 +528,8 @@
 
 >I'd rather be the owner than be owned
 
+>I cannot fix a man and raise a son
+
 >You get on my nerves, curse you with proverbs
 
 >Strong typing is a bad choice for loosely coupled distributed systems. The moment you need to change anything, the type signature changes
