@@ -2,6 +2,8 @@
 
 >Human nature does not change
 
+>stop explaining yourself to fools
+
 >If a man guards a book year after year, which is more important, the man or the book?
 
 >A book will outlive a man, a tool will outlive a book, a song will outlive them all
