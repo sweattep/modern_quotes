@@ -12,6 +12,8 @@
 
 >Math is the opposite of learning by example
 
+>The best professional wrestling needs to pretend to be real, when it stops pretending to be real, which is all of what they're doing today, it's ridiculous.
+
 >he who listens not to a few words of wisdom, will never listen, even unto a multitude
 
 >If you spend too much time thinking about a thing, you'll never get it done.
