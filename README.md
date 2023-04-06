@@ -543,3 +543,5 @@
 >I cannot fix men and raise my son
 
 >Having interviewed thousands of people in my career, I can say with certainty it’s better to ask people what they did, then to ask them what they would do.
+
+>there’s not enough marketing dollars to go around to change the way the rest of the world feels
