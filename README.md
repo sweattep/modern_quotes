@@ -551,3 +551,5 @@
 >i put my orange four-inch syringe in the door hinge
 
 >The Lakers brought him in and tried to make him a different player, tried to force him to be something he is not. And that led to a lot of the problems they had with each other. But the Lakers left him hung out to dry there.
+
+>You have to compete. You have to push yourself. And you have to do it every day.
