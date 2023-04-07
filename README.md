@@ -540,6 +540,8 @@
 
 >Strong typing is a bad choice for loosely coupled distributed systems. The moment you need to change anything, the type signature changes
 
+>You have to compete. You have to push yourself. And you have to do it every day.
+
 >I cannot fix men and raise my son
 
 >Having interviewed thousands of people in my career, I can say with certainty it’s better to ask people what they did, then to ask them what they would do.
