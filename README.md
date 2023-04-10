@@ -2,6 +2,8 @@
 
 >Human nature does not change
 
+>Muscles build and recover during periods of rest
+
 >stop explaining yourself to fools
 
 >If a man guards a book year after year, which is more important, the man or the book?
