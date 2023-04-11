@@ -555,3 +555,5 @@
 >The Lakers brought him in and tried to make him a different player, tried to force him to be something he is not. And that led to a lot of the problems they had with each other. But the Lakers left him hung out to dry there.
 
 >You have to compete. You have to push yourself. And you have to do it every day.
+
+>We were very clear about the kind of gigs we were going to take that allowed me not to just ask questions, but to have an opinion. Not only have an opinion, but an opinion that allows me to be informed and that's scary in itself.
