@@ -559,3 +559,5 @@
 >We were very clear about the kind of gigs we were going to take that allowed me not to just ask questions, but to have an opinion. Not only have an opinion, but an opinion that allows me to be informed and that's scary in itself.
 
 >If you've got something so negative to say about somebody, why are you on their page? You're obviously into them or you wouldn't be there.
+
+>Unconsciously, people feel someone is a good culture fit when they have the interview and decide if they would work with you or not.
