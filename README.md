@@ -561,3 +561,5 @@
 >If you've got something so negative to say about somebody, why are you on their page? You're obviously into them or you wouldn't be there.
 
 >Unconsciously, people feel someone is a good culture fit when they have the interview and decide if they would work with you or not.
+
+>It is given to a fortunate few to be born at the right time, in the right place, with the right talents.
