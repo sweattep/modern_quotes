@@ -52,6 +52,10 @@
 
 >To prove that you are poor, get it in writing. To prove that you are rich, get a rich lawyer.
 
+>There is no such thing ever known among them as cripples.
+
+>They never suffer any of their own nation to want, but support the old, the blind, and lame, equally with the other
+
 >Besides learning propositional logic, I could've skipped college and went straight to building a better 21 blackjack
 
 >I grew the company size too quickly. I apologize for that
