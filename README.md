@@ -571,3 +571,5 @@
 >When we talk about mental illnesses or depression, anxiety, and stress, we often talk about those things as if they're just chemical imbalances. It makes sense that if you're struggling to pay bills or you're worried about whether your children are going to eat that that causes some stress and anxiety for you.
 
 >The only thing he's not scripted to say or do is when he use the bathroom, whether it's defecation or urination.
+
+>when you use your power to make someone do something they don't want to do, or to hurt someone, you are abusing your power.
