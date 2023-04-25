@@ -573,3 +573,7 @@
 >The only thing he's not scripted to say or do is when he use the bathroom, whether it's defecation or urination.
 
 >when you use your power to make someone do something they don't want to do, or to hurt someone, you are abusing your power.
+
+>understand that there’s no sacrifice we can make that is too great to retrieve that which we’ve lost
+
+>we will forever be distracted with possessions and trinkets and title
