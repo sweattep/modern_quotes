@@ -577,3 +577,5 @@
 >understand that there’s no sacrifice we can make that is too great to retrieve that which we’ve lost
 
 >we will forever be distracted with possessions and trinkets and title
+
+>take your favorite records and write your version of your favorite records with your words on that track
