@@ -572,6 +572,8 @@
 
 >The only thing he's not scripted to say or do is when he use the bathroom, whether it's defecation or urination.
 
+>in lieu of flowers you consider following his spirit and make a donation or  commit to an act of kindness to someone in need or a worthy advocacy organization. As he always said, “Take care of yourself, and each other.”
+
 >when you use your power to make someone do something they don't want to do, or to hurt someone, you are abusing your power.
 
 >understand that there’s no sacrifice we can make that is too great to retrieve that which we’ve lost
