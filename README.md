@@ -581,3 +581,5 @@
 >we will forever be distracted with possessions and trinkets and title
 
 >take your favorite records and write your version of your favorite records with your words on that track
+
+>must be the devil...can't be rockefeller
