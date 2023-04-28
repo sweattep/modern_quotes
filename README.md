@@ -583,3 +583,5 @@
 >take your favorite records and write your version of your favorite records with your words on that track
 
 >must be the devil...can't be rockefeller
+
+>we willfully remain the humble servants of every one else's iDEAS except our own
