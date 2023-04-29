@@ -34,6 +34,8 @@
 
 >Put pressure on that ham!
 
+>banks are by definition insolvent in a fractional reserve system
+
 >Employees are being encouraged to say no to meetings and to remove themselves from large internal chat groups
 
 >McMahon owns about 92% of outstanding Class B shares, which contain 10 votes per share, whereas Class A shares hold only one vote per share.
