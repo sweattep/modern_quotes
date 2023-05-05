@@ -12,6 +12,8 @@
 
 >Do what you gotta do but know you gotta change, try to find a way to make it out the game
 
+>Peace requires us to surrender our illusions of control.
+
 >Math is the opposite of learning by example
 
 >The best professional wrestling needs to pretend to be real, when it stops pretending to be real, which is all of what they're doing today, it's ridiculous.
