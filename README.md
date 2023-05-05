@@ -587,3 +587,5 @@
 >must be the devil...can't be rockefeller
 
 >we willfully remain the humble servants of every one else's iDEAS except our own
+
+>A serious challenge, which we face in today’s world, is for each person, whether literate or illiterate, `to say what one means andmean what one says,` a statement, which is alien to institutional logic and to career-oriented professionals.
