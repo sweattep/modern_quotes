@@ -593,3 +593,5 @@
 >A serious challenge, which we face in today’s world, is for each person, whether literate or illiterate, `to say what one means andmean what one says,` a statement, which is alien to institutional logic and to career-oriented professionals.
 
 >Its cobbling together of nested functions and dynamic objects was brilliant. I spent a decade trying to correct its flaws. I had a minor success with ES5. But since then, there has been strong interest in further bloating the language instead of making it better. So JavaScript, like the other dinosaur languages, has become a barrier to progress.
+
+>While the virus is here to stay, it's believed that most of the world's population has now been infected by it and therefore has built immunity to it.
