@@ -32,6 +32,8 @@
 
 >No one teaches us how to run our own businesses
 
+>organic traffic is mostly self-sustaining after you've put in the time and effort to create a blog post
+
 >About damn time! Pooncoo
 
 >Put pressure on that ham!
