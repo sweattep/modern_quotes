@@ -38,6 +38,8 @@
 
 >Put pressure on that ham!
 
+>learned how to think ahead so i fight with my pen
+
 >banks are by definition insolvent in a fractional reserve system
 
 >Employees are being encouraged to say no to meetings and to remove themselves from large internal chat groups
