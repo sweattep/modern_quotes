@@ -605,3 +605,5 @@
 >While the virus is here to stay, it's believed that most of the world's population has now been infected by it and therefore has built immunity to it.
 
 >protect yourselves, protect your family, leave a legacy
+
+>identify and honor dedication and selflessness and builds esprit de corps within the entire connected universe of those who drill, and those who have respect and honor as spectators, teachers, and related entities
