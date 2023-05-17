@@ -609,4 +609,7 @@
 >identify and honor dedication and selflessness and builds esprit de corps within the entire connected universe of those who drill, and those who have respect and honor as spectators, teachers, and related entities
 
 >If by a mere technicality one class of citizens can be deprived of the rights and immunities guaranteed by the organic law of the nation, what is to prevent any other class from sharing the same fate?
+
 >meet real people where they are in their real lives
+
+>point the way out of the warfares between labor and capital
