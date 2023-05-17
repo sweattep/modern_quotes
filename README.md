@@ -2,6 +2,8 @@
 
 >Human nature does not change
 
+>It left us free, but it also left us homeless, penniless, ignorant, nameless and friendless.
+>
 >Muscles build and recover during periods of rest
 
 >stop explaining yourself to fools
