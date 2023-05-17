@@ -607,3 +607,5 @@
 >protect yourselves, protect your family, leave a legacy
 
 >identify and honor dedication and selflessness and builds esprit de corps within the entire connected universe of those who drill, and those who have respect and honor as spectators, teachers, and related entities
+
+>meet real people where they are in their real lives
