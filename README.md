@@ -1,5 +1,7 @@
 >I've always been a gamer
 
+>If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
+>
 >Human nature does not change
 
 >It left us free, but it also left us homeless, penniless, ignorant, nameless and friendless.
