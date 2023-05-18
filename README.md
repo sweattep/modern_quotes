@@ -615,3 +615,7 @@
 >point the way out of the warfares between labor and capital
 
 >The law which deprives him of the badge of citizenship, changes at once his legal status and cuts him off from respect. His disqualification as an elector shuts him out of the jury box in courts where what few rights he has left are adjudicated and his grievances redressed. His disqualification as an elector and as a juror discredits him as a witness. In the states which have adopted these disfranchising constitutions, more than three hundred thousand citizens have been thereby disqualified as jurors. This is all the more outrageous, because in the same states advantage has been taken in criminal legislation
+
+>labor must be managed, and control must be asserted
+
+>A free man, yet penniless and homeless. A man of toil, but one whose own and whose ancestral toil had created a material and social grandeur which now mocked at his poverty and arrogantly denied him a share in its blessings. A free man, but ignorant, the greatest curse imposed by his former status which had contributed to the enlightenment of others. A freeman, but helpless in the face of an impending persecution. He, whose labor had contributed to the comfort and social happiness of others
