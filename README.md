@@ -619,3 +619,5 @@
 >labor must be managed, and control must be asserted
 
 >A free man, yet penniless and homeless. A man of toil, but one whose own and whose ancestral toil had created a material and social grandeur which now mocked at his poverty and arrogantly denied him a share in its blessings. A free man, but ignorant, the greatest curse imposed by his former status which had contributed to the enlightenment of others. A freeman, but helpless in the face of an impending persecution. He, whose labor had contributed to the comfort and social happiness of others
+
+>the company was encouraging wellness and staying home until review periods where raises were withheld, insurance was not maintained even though the company had widely promoted that it would be, and additional hazard pay was taken away a month after being instated
