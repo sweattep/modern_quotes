@@ -613,3 +613,5 @@
 >meet real people where they are in their real lives
 
 >point the way out of the warfares between labor and capital
+
+>The law which deprives him of the badge of citizenship, changes at once his legal status and cuts him off from respect. His disqualification as an elector shuts him out of the jury box in courts where what few rights he has left are adjudicated and his grievances redressed. His disqualification as an elector and as a juror discredits him as a witness. In the states which have adopted these disfranchising constitutions, more than three hundred thousand citizens have been thereby disqualified as jurors. This is all the more outrageous, because in the same states advantage has been taken in criminal legislation
