@@ -1,3 +1,5 @@
+>Nothing is more readily believed than what&mdash;regardless of the truth&mdash;meets our wishes and illusions half-way
+
 >I've always been a gamer
 
 >If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
