@@ -627,3 +627,5 @@
 >the company was encouraging wellness and staying home until review periods where raises were withheld, insurance was not maintained even though the company had widely promoted that it would be, and additional hazard pay was taken away a month after being instated
 
 >We pump constant confidence into everybody, and we go out there and hoop
+
+>They survived by keeping aloof from the others. Admixture of blood made little difference, since what kept them together was something ideal&mdash;thepossession they had in common of certain intellectual and emotional values.
