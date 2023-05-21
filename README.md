@@ -7,7 +7,7 @@
 >Human nature does not change
 
 >Be grateful for blessings, don't every change, keep your essence
->
+
 >pushstates aren't really navigations
 
 >It left us free, but it also left us homeless, penniless, ignorant, nameless and friendless.
