@@ -4,6 +4,8 @@
 
 >If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
 
+>Hall believed that a separate lodge would provide the specific kind of camaraderie
+
 >Human nature does not change
 
 >Be grateful for blessings, don't every change, keep your essence
