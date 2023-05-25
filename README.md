@@ -643,3 +643,5 @@
 >study Jewish culture and learn how to emulate it. How to work together, develop economically and make government accountable.
 
 >At the end of the day, you fall back on your habits. How consistent are you going to be?
+
+>The bulk of this money went to Steam/Xbox/Playstation/Nintendo storefronts
