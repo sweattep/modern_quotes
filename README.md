@@ -639,3 +639,5 @@
 >The media's the most powerful entity on earth. They have the power
 
 >I believe we must document and record our own history. If we don't&hellip;who will
+
+>study Jewish culture and learn how to emulate it. How to work together, develop economically and make government accountable.
