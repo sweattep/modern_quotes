@@ -637,3 +637,5 @@
 >They survived by keeping aloof from the others. Admixture of blood made little difference, since what kept them together was something ideal&mdash;thepossession they had in common of certain intellectual and emotional values.
 
 >The media's the most powerful entity on earth. They have the power
+
+>I believe we must document and record our own history. If we don't&hellip;who will
