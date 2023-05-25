@@ -641,3 +641,5 @@
 >I believe we must document and record our own history. If we don't&hellip;who will
 
 >study Jewish culture and learn how to emulate it. How to work together, develop economically and make government accountable.
+
+>At the end of the day, you fall back on your habits. How consistent are you going to be?
