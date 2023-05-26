@@ -6,6 +6,8 @@
 
 >If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
 
+>We've told them to follow their passions. What we should tell them is to follow opportunity – and bring their passions with them.
+
 >Hall believed that a separate lodge would provide the specific kind of camaraderie
 
 >Human nature does not change
