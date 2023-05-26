@@ -6,6 +6,12 @@
 
 >If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
 
+>Nobody advocating for helping the poor actually wants anyone who's poor to be in power. 
+
+>They give out free, nearly useless, substandard education while at the same time demanding that existing workers learn to be more pliable and agreeable.
+
+>They literally want everyone to be free to become a programmer, but programmers to study only approved courses from top notch institutions that cost tons of money.
+
 >We've told them to follow their passions. What we should tell them is to follow opportunity – and bring their passions with them.
 
 >Hall believed that a separate lodge would provide the specific kind of camaraderie
