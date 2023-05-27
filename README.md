@@ -330,6 +330,8 @@
 
 >Proponents of the criminal policy of herd immunity have seized on Singapore as an example to push for "opening up" and "living with Covid" once high vaccination rates have been achieved
 
+>In the history of mankind, there has never been a political party, President, leader, King or Queen who has ever brought lasting happiness to all his or her subjects. Our politics are flawed
+
 >Organisations often produce web sites with a content and structure which mirrors the internal concerns of the organisation rather than the needs of the users of the site
 
 >You can't live your life and then end up in a predicament and blame that on anybody else. You got to stand on what you put out there
