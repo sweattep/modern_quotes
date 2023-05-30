@@ -12,6 +12,8 @@
 
 >They literally want everyone to be free to become a programmer, but programmers to study only approved courses from top notch institutions that cost tons of money.
 
+>They treated that game 6 like it was a game 7 and then they treated game 7 like it was a preseason
+
 >We've told them to follow their passions. What we should tell them is to follow opportunity – and bring their passions with them.
 
 >Hall believed that a separate lodge would provide the specific kind of camaraderie
