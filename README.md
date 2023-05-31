@@ -659,4 +659,7 @@
 >At the end of the day, you fall back on your habits. How consistent are you going to be?
 
 >Down here in the real world we do not call something wrong unless it causes a problem.
+
 >The bulk of this money went to Steam/Xbox/Playstation/Nintendo storefronts
+
+>By March 2022, Tears of the Kingdom was essentially complete, but Nintendo delayed it for a year to refine it.
