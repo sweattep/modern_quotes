@@ -6,6 +6,8 @@
 
 >If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
 
+>The object of war is, quite simply, to force or encourage the enemy to make what you assert is a better choice, or to choose what you desire the enemy to choose.
+
 >Nobody advocating for helping the poor actually wants anyone who's poor to be in power. 
 
 >They give out free, nearly useless, substandard education while at the same time demanding that existing workers learn to be more pliable and agreeable.
