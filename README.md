@@ -4,7 +4,11 @@
 
 >Sell the lifestyle
 
+>To gamble you must accept losing
+
 >If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
+
+>Having confidence is a huge part of being successful. When you have it, you can do no wrong. When you don't, all you can do is wrong.
 
 >The object of war is, quite simply, to force or encourage the enemy to make what you assert is a better choice, or to choose what you desire the enemy to choose.
 
