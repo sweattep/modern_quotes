@@ -8,6 +8,8 @@
 
 >If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
 
+>where justice is denied, where poverty is in force, where ignorance prevails, and where one class is made to feel that society is an organized conspiracy to oppress, rob and degrade them, neither persons nor property will be safe
+
 >Having confidence is a huge part of being successful. When you have it, you can do no wrong. When you don't, all you can do is wrong.
 
 >The object of war is, quite simply, to force or encourage the enemy to make what you assert is a better choice, or to choose what you desire the enemy to choose.
