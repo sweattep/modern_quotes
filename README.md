@@ -8,6 +8,8 @@
 
 >If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
 
+>having a single benefactor for a non-profit is almost a death sentence. It's super risky, and as we've seen here, when that single donor goes away, it's all over.
+
 >where justice is denied, where poverty is in force, where ignorance prevails, and where one class is made to feel that society is an organized conspiracy to oppress, rob and degrade them, neither persons nor property will be safe
 
 >Having confidence is a huge part of being successful. When you have it, you can do no wrong. When you don't, all you can do is wrong.
