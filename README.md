@@ -673,3 +673,5 @@
 >The bulk of this money went to Steam/Xbox/Playstation/Nintendo storefronts
 
 >By March 2022, Tears of the Kingdom was essentially complete, but Nintendo delayed it for a year to refine it.
+
+>You should at the same time be found guilty of that most criminal act which you professedly detested in others
