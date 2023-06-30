@@ -677,3 +677,5 @@
 >You should at the same time be found guilty of that most criminal act which you professedly detested in others
 
 >an illiterate man can be a far more 'educated' voter than someone with an advanced degree.
+
+>listen carefully to country people's sayings
