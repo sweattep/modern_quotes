@@ -675,3 +675,5 @@
 >By March 2022, Tears of the Kingdom was essentially complete, but Nintendo delayed it for a year to refine it.
 
 >You should at the same time be found guilty of that most criminal act which you professedly detested in others
+
+>an illiterate man can be a far more 'educated' voter than someone with an advanced degree.
