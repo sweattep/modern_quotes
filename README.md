@@ -683,3 +683,5 @@
 >an illiterate man can be a far more 'educated' voter than someone with an advanced degree.
 
 >listen carefully to country people's sayings
+
+>Now, a supplement has to be proven dangerous -- in other words, people have to get sick or die -- before it can be banned.
