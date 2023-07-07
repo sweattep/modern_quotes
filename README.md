@@ -16,6 +16,8 @@
 
 >Having confidence is a huge part of being successful. When you have it, you can do no wrong. When you don't, all you can do is wrong.
 
+>Jobs that put them in a leadership position are ideal for those who can bring people together or are natural mediators 
+
 >The object of war is, quite simply, to force or encourage the enemy to make what you assert is a better choice, or to choose what you desire the enemy to choose.
 
 >Nobody advocating for helping the poor actually wants anyone who's poor to be in power. 
