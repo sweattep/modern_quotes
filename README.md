@@ -1,5 +1,7 @@
 >Nothing is more readily believed than what&mdash;regardless of the truth&mdash;meets our wishes and illusions half-way
 
+>The essence of linked data is using common terms that have common meanings. No need to create a unique term for a concept that already exists
+
 >I've always been a gamer
 
 >Sell the lifestyle
