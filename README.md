@@ -689,3 +689,5 @@
 >listen carefully to country people's sayings
 
 >Now, a supplement has to be proven dangerous -- in other words, people have to get sick or die -- before it can be banned.
+
+>sources close to Ricky Rubio tell me that Mundo Deportivo is lying. But still, my source is not as reliable as yours
