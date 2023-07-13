@@ -574,6 +574,8 @@
 
 >tax systems designed to force the population into the labor market through debt
 
+>we helped the property owner recover some of their equity in the form of excess proceeds that were the result of the auction buyer paying more for the property than the taxes owing to the county
+
 >Someone with nothing to sell but his or her body cannot in any sense by considered a genuinely free agent
 
 >It is terrifying to be left alone with yourself, when you don’t know who yourself is.
