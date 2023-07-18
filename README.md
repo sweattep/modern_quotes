@@ -2,6 +2,8 @@
 
 >The essence of linked data is using common terms that have common meanings. No need to create a unique term for a concept that already exists
 
+>What motivation is there to become the best at something when there is a clear ceiling on what is possible financially?
+
 >Amazon S3 acts as the foundation for all data platforms built on AWS.
 
 >I've always been a gamer
