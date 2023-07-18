@@ -6,6 +6,8 @@
 
 >Amazon S3 acts as the foundation for all data platforms built on AWS.
 
+>Our services are built using common data storage technologies specifically assembled into purpose-built, cost-optimized systems
+
 >I've always been a gamer
 
 >Sell the lifestyle
