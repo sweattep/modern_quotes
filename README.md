@@ -408,6 +408,8 @@
 
 > Don't think...FEEL! It is like a finger pointing away to the moon. Don't concentrate on the finger or you will miss all that heavenly glory!
 
+>Individual success depends on team success. Even in a streetfight, a victory that ends in jail is pyrrhic at best.
+
 >You would start new business, a new economy and new executives. This is what we did with hip hop, this is how it started - trading amongst ourselves. It’s just that we got sidetracked when the corporate executives came into the game and started making his own money out the game and his economics ravished our economics because his was worldwide when ours was regional. Now, our economics is worldwide and his economics is regional and about to collapse.
 
 >targeted application developers with self-service offerings as a `foot in the door` to larger enterprise accounts.
