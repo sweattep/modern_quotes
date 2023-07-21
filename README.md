@@ -136,6 +136,8 @@
 
 >Synchronous communication is not possible
 
+>win has something to do with betting.
+
 >The enjoyment of one's tools is an essential ingredient of successful work.
 
 >Some data types, workflows, or complex test scenarios can only be tested in production.
