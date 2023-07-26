@@ -20,6 +20,8 @@
 
 >After 12 years in the major leagues, I do not feel that I am a piece of property to be bought and sold irrespective of my wishes.
 
+>employers appear to be less willing to invest in training of new employees, and instead prefer to have their current workforce put in more hours; this has been the case in the high tech industry
+
 >Most established companies that can amortize capital investments over a few years should seriously reconsider the cloud craze. The benefits have been vastly overstated. The cloud is often just as complicated as running things yourself, and it's usually ridiculously more expensive.
 
 >having a single benefactor for a non-profit is almost a death sentence. It's super risky, and as we've seen here, when that single donor goes away, it's all over.
