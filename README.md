@@ -720,4 +720,10 @@
 
 >men and women who are otherwise kind and law-abiding will indulge in the most revolting forms of cruelty
 
+>I'm just an actor who happens to rap in his spare time
+
 >So if a very tiny percentage of your users have a certain disability would you then remove an accessibility feature because it wasn't serving enough disabled users?
+
+>If James Dean was a rapper, he would be me
+
+>He represents euthanasia, to die slowly, to die painlessly, you know what i mean
