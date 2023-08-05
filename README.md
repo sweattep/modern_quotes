@@ -717,3 +717,5 @@
 >excess accumulation of visceral fat (a high visceral fat z-score) at any given BMI was significantly associated with increased risk of CVD and T2D. Conversely, excess amounts of subcutaneous- and liver- fat was associated with a lower risk of cardiovascular disease indicating a potentially protective fat distribution pattern.
 
 >men and women who are otherwise kind and law-abiding will indulge in the most revolting forms of cruelty
+
+>So if a very tiny percentage of your users have a certain disability would you then remove an accessibility feature because it wasn't serving enough disabled users?
