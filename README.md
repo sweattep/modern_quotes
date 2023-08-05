@@ -14,6 +14,8 @@
 
 >It seemed that the definition of done changed depending on the function of the team member
 
+>Life is a beautiful collection of temporary experiences
+
 >To gamble you must accept losing
 
 >If it's a passion, you won't need to tell them to go to practice, pick up the instrument, or show up to class. They'll want to show up naturally and immerse themselves in it.
