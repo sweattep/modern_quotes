@@ -382,6 +382,8 @@
 
 >My daughter's arm is constantly sore,' said Smalls. 'She can barely lift it. Constantly having headaches and her asthma has been triggered.'
 
+>To be blunt about it, the people most impacted by heat are not the kind of voting demographic that gets any politician nervous.
+
 >Personal guarantees can wipe you out
 
 >The idea was to make writing simple web pages, and especially weblog entries, as easy as writing an email
