@@ -731,3 +731,5 @@
 >If James Dean was a rapper, he would be me
 
 >He represents euthanasia, to die slowly, to die painlessly, you know what i mean
+
+>We need more thinkers
