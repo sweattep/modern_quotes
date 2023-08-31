@@ -18,6 +18,8 @@
 
 >Looking back, what was it all for? Why I was not missing days that I could've spent with my kids and my wife?
 
+>In New York, a retailer might price a designer handbag at 2.2 or 2.3 times the wholesale price.
+
 >Life is a beautiful collection of temporary experiences
 
 >To gamble you must accept losing
