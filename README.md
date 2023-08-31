@@ -1,7 +1,7 @@
 >Nothing is more readily believed than what&mdash;regardless of the truth&mdash;meets our wishes and illusions half-way
 
 >all we've been shouting about all this time is better laws and more respect and all this shouting all this is doing now is getting laws changed so that we can't shout about it no more...and we get less respect anyway
->
+
 >The essence of linked data is using common terms that have common meanings. No need to create a unique term for a concept that already exists
 
 >What motivation is there to become the best at something when there is a clear ceiling on what is possible financially?
@@ -33,6 +33,8 @@
 >I saw several different ways in which things could be done, but I never regarded them as the only way in which things should be done. I already knew what I wanted to achieve, so I experimented with different ways in order to find the one that worked best for me, meaning that it had be be both simple and reliable. I was aided by the fact that instead of a basic text editor I had managed to find a proper IDE with a symbolic debugger so that I could step through the running code line by line to see exactly what was happening if a problem appeared. I had already used an IDE with a debugger in my previous language, so I knew how valuable it could be.
 
 >having a single benefactor for a non-profit is almost a death sentence. It's super risky, and as we've seen here, when that single donor goes away, it's all over.
+
+>more merchants and fewer dudes, more piety and less religion, more economy and less wastefulness, more confidence and less envy.
 
 >where justice is denied, where poverty is in force, where ignorance prevails, and where one class is made to feel that society is an organized conspiracy to oppress, rob and degrade them, neither persons nor property will be safe
 
