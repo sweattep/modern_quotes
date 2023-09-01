@@ -36,6 +36,8 @@
 
 >having a single benefactor for a non-profit is almost a death sentence. It's super risky, and as we've seen here, when that single donor goes away, it's all over.
 
+>I declare my belief that we are suffering not from a too extended ballot, but from one too limited and unrepresentative. We enunciate a principle of government, and then deny its practice. If experience has established anything, it is that the interest of one class is never safe in the hands of another. There is no class so poor or ignorant in a Republic that it does not know its own suffering and needs better than the wealthy and educated classes. By the rule of justice it has the same right precisely to give them legal expression. That expression is bound to come, and it is wisest for it to come through the ballot box than through mobs and violence born of a feeling of misery and despair.
+
 >more merchants and fewer dudes, more piety and less religion, more economy and less wastefulness, more confidence and less envy.
 
 >where justice is denied, where poverty is in force, where ignorance prevails, and where one class is made to feel that society is an organized conspiracy to oppress, rob and degrade them, neither persons nor property will be safe
