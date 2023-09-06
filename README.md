@@ -743,3 +743,5 @@
 >He represents euthanasia, to die slowly, to die painlessly, you know what i mean
 
 >We need more thinkers
+
+>Encourage people, simplify, and leverage public property
