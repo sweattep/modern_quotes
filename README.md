@@ -374,6 +374,8 @@
 
 >There are several reports on the antiviral activity of numerous plants against highly pathogenic viruses, including coronaviruses. The plants of Echinacea genus are one among those plants, which are well known for their potential antiviral activity against pathogenic coronaviruses. Echinacea angustifolia (E. angustifolia) is one of the popular medical plants belonging to this genus with medicinal value, including antimicrobial and anti-inflammatory activities.
 
+> There is a window of opportunity for teaching and learning; the task is to know when it appears and exploit it.
+
 >This is one scenario that scientists foresee for SARS-CoV-2. The virus sticks around, but once people develop some immunity to it — either through natural infection or vaccination — they won't come down with severe symptoms.
 
 >All laws are selective to some extent, but categories of selection are of paramount concern when a law has the incidental effect of burdening religious practice
