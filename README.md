@@ -14,6 +14,8 @@
 
 >Sell the lifestyle
 
+>People with disabilities are the largest minority group in our country, and the only group any one of us can become a member of at any time.
+
 >It seemed that the definition of done changed depending on the function of the team member
 
 >Looking back, what was it all for? Why I was not missing days that I could've spent with my kids and my wife?
