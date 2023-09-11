@@ -24,6 +24,8 @@
 
 >In New York, a retailer might price a designer handbag at 2.2 or 2.3 times the wholesale price.
 
+>a mere four seconds of intense intervals (training), repeated until they amount to about a minute of total exertion, lead to rapid and meaningful improvements in strength, fitness and general physical performance among middle-aged and older adults
+>
 >Life is a beautiful collection of temporary experiences
 
 >To gamble you must accept losing
