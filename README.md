@@ -16,6 +16,8 @@
 
 >People with disabilities are the largest minority group in our country, and the only group any one of us can become a member of at any time.
 
+>I never imagined that marriage would become a haven for me! But it has, and from that experience all I can say is I carry remorse for insisting on such an independent life. It wasn’t conducive for me in the full arc of the last half century.
+
 >It seemed that the definition of done changed depending on the function of the team member
 
 >Looking back, what was it all for? Why I was not missing days that I could've spent with my kids and my wife?
