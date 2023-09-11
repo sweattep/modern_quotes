@@ -524,6 +524,8 @@
 
 >All society is doing is leeching off the ghetto
 
+>it turns out that publicly disclosing losing millions per month doesn't match the lifestyle
+
 >god's coming she just taking her time
 
 >The original iPod was not much more than a hard drive: an incredibly efficient computer memory device that uses simple magnetism to store vast amounts of information.
