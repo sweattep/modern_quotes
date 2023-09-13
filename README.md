@@ -742,6 +742,8 @@
 
 >excess accumulation of visceral fat (a high visceral fat z-score) at any given BMI was significantly associated with increased risk of CVD and T2D. Conversely, excess amounts of subcutaneous- and liver- fat was associated with a lower risk of cardiovascular disease indicating a potentially protective fat distribution pattern.
 
+>Take a mediocre product, mediocre shoes, sugary drinks, salty snacks, or a mediocre car from Detroit and wrap it in these amazing associations of sex, youth, European elegance, American toughness and pound away with these associations using this incredibly vehicle called broadcast media.
+
 >men and women who are otherwise kind and law-abiding will indulge in the most revolting forms of cruelty
 
 >I'm just an actor who happens to rap in his spare time
