@@ -757,3 +757,5 @@
 >We need more thinkers
 
 >Encourage people, simplify, and leverage public property
+
+>Numerous instances were identified during the scope period of the audit where vendors were created/changed and then subsequently paid by the same employee
