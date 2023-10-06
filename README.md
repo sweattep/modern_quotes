@@ -26,6 +26,8 @@
 
 >A mere four seconds of intense intervals (training), repeated until they amount to about a minute of total exertion, lead to rapid and meaningful improvements in strength, fitness and general physical performance among middle-aged and older adults
 
+>He collected the interviews, he realized he had a book on his hands, and spent the next few months selling it
+
 >Life is a beautiful collection of temporary experiences
 
 >To gamble you must accept losing
