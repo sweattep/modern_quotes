@@ -10,6 +10,8 @@
 
 >What motivation is there to become the best at something when there is a clear ceiling on what is possible financially?
 
+>We all make mistakes sometimes. They are expected. And we need to build in a safety net for making them.
+
 >Amazon S3 acts as the foundation for all data platforms built on AWS.
 
 >Our services are built using common data storage technologies specifically assembled into purpose-built, cost-optimized systems
