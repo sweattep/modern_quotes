@@ -20,6 +20,8 @@
 
 >Sell the lifestyle
 
+>But as you get older, there’s always younger guys that make less than you that are coming up trying to take your job. So, it’s on me to make sure that I prove I should be here.
+
 >An output column's name can be used to refer to the column's value in ORDER BY and GROUP BY clauses, but not in the WHERE or HAVING clauses; there you must write out the expression instead
 
 >People with disabilities are the largest minority group in our country, and the only group any one of us can become a member of at any time.
