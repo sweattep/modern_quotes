@@ -1,5 +1,7 @@
 >Nothing is more readily believed than what&mdash;regardless of the truth&mdash;meets our wishes and illusions half-way
 
+>The team needs the tools to build a system of longevity, and to break out of a survival mode in which there seem to be few survivors.
+
 >I'd rather be someone's shot of whiskey, than everyone's cup of tea
 
 >Do not do take home tests for interviews. tell them to kiss your grits. you will not hear back from them. they will steal your tech solutions, your pr processes, your creative, your intellectual property.
