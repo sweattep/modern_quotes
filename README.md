@@ -22,6 +22,8 @@
 
 >Amazon S3 acts as the foundation for all data platforms built on AWS.
 
+>Stop perpetuating a Web and Web apps that are inaccessible and harmful. For me, this has especially harmed me with the lack of user controls in motion graphics, flickering animations, too many moving animations on a page – um, these are well-known legally binding issues.
+
 >Our services are built using common data storage technologies specifically assembled into purpose-built, cost-optimized systems
 
 >I've always been a gamer
