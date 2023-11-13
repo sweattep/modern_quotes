@@ -446,6 +446,8 @@
 
 >Make the product. Make sure that the product can stand shoulder to shoulder with the industry standard and make sure that your product stands out from the rest
 
+>actually do work on the political and social layers of electronic freedoms
+
 >There must be legal protection against convictions for conduct undeserving of punishment. And indeed there is. The judicial system is not plagued by a multitude of insignificant prosecutions for conduct that merely meets the technical requirements of "a crime" (e.g., theft of a penny) because prosecutorial discretion is effective and because the common law defence of de minimis non curat lex (the law does not care for small or trifling matters) is available to judges.
 
 >Hiroshi Tanaka took his product team out for beers and asked why a copier drum couldn't be made using the same process used to make a beer can — in other words, could it be cheap and disposable.
