@@ -8,6 +8,8 @@
 
 >Do not do take home tests for interviews. tell them to kiss your grits. you will not hear back from them. they will steal your tech solutions, your pr processes, your creative, your intellectual property.
 
+>Building any sort of web-based business dependent on some irreplaceable third party, such as Google, is risky.
+>
 >admission never translated into compensatory action or a genuine commitment to refrain from future interference
 
 >all we've been shouting about all this time is better laws and more respect and all this shouting all this is doing now is getting laws changed so that we can't shout about it no more...and we get less respect anyway
