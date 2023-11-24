@@ -48,6 +48,8 @@
 
 >In New York, a retailer might price a designer handbag at 2.2 or 2.3 times the wholesale price.
 
+>It's never about accent. It's sound and timing. Stressing the correct syllable and using the natural timing of English is something that should be front and center
+
 >A mere four seconds of intense intervals (training), repeated until they amount to about a minute of total exertion, lead to rapid and meaningful improvements in strength, fitness and general physical performance among middle-aged and older adults
 
 >He collected the interviews, he realized he had a book on his hands, and spent the next few months selling it
