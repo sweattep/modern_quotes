@@ -774,6 +774,8 @@
 
 >Dive into a concrete problem and show how to fix it from the perspective of a kid;
 
+>Philosophy encourages us to analyze information, dissect arguments, and examine the implications of AI technologies. It equips us with the tools to differentiate between genuine insights and misleading data.
+
 >Leave the 'now this is what we're gonna do' speeches to the competition
 
 >Now, a supplement has to be proven dangerous -- in other words, people have to get sick or die -- before it can be banned.
