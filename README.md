@@ -474,6 +474,8 @@
 
 >You would start new business, a new economy and new executives. This is what we did with hip hop, this is how it started - trading amongst ourselves. It’s just that we got sidetracked when the corporate executives came into the game and started making his own money out the game and his economics ravished our economics because his was worldwide when ours was regional. Now, our economics is worldwide and his economics is regional and about to collapse.
 
+>Hip-Hop is a word of mouth, street culture. That’s what it is. It’s not a technology culture
+
 >targeted application developers with self-service offerings as a `foot in the door` to larger enterprise accounts.
 
 >By 1779, Hope, who was described by the Virginia Gazette as 'Caesar, the famous barber of York', had been freed. Enslaved for 36 years, his owner in 1779 petitioned the Virginia Assembly to set him free. This became possible thanks to the fame he had earned for his occupation. Reports said at least 32 residents of Yorktown supported Hope's freedom. Five years after becoming a free man, he shed the slave name 'Caesar' and started doing business in Williamsburg under the name John Hope. He also purchased and freed his own son, Aberdeen. In the 1790s, Hope purchased a lot on Shockoe Hill, a few blocks west of the Capitol building. While accumulating property, he got married and had two children. Five years ago, the life and journey of Hope inspired a new Colonial Williamsburg site. Colonial Williamsburg has since the 1920s served as a museum and education site, and it is very popular in the American South. In October 2017, it opened Hope's Barber Shop to interpret the remarkable story of Hope.
