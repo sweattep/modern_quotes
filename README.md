@@ -698,6 +698,7 @@
 
 >Unconsciously, people feel someone is a good culture fit when they have the interview and decide if they would work with you or not.
 
+>buying distressed financial stocks in February and March ( including Bank of America at $3 ), and then profiting from their recovery that year
 >It is given to a fortunate few to be born at the right time, in the right place, with the right talents.
 
 >When we talk about mental illnesses or depression, anxiety, and stress, we often talk about those things as if they're just chemical imbalances. It makes sense that if you're struggling to pay bills or you're worried about whether your children are going to eat that that causes some stress and anxiety for you.
