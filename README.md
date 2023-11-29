@@ -699,6 +699,7 @@
 >Unconsciously, people feel someone is a good culture fit when they have the interview and decide if they would work with you or not.
 
 >buying distressed financial stocks in February and March ( including Bank of America at $3 ), and then profiting from their recovery that year
+
 >It is given to a fortunate few to be born at the right time, in the right place, with the right talents.
 
 >When we talk about mental illnesses or depression, anxiety, and stress, we often talk about those things as if they're just chemical imbalances. It makes sense that if you're struggling to pay bills or you're worried about whether your children are going to eat that that causes some stress and anxiety for you.
@@ -809,4 +810,8 @@
 
 >Numerous instances were identified during the scope period of the audit where vendors were created/changed and then subsequently paid by the same employee
 
->Accessibility for all devices and for all humans no matter what or where. Relevant content connecting to other relevant content. Searchable. Meaningful. OPEN! 
+>Accessibility for all devices and for all humans no matter what or where. Relevant content connecting to other relevant content. Searchable. Meaningful. OPEN!
+
+>We come up with all different types of excuses. Nobody cared. We all went to Clubhouse and blew this up. You know this guy went to the bank, got whatever he want.
+
+>
