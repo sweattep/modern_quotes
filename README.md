@@ -812,6 +812,8 @@
 
 >Accessibility for all devices and for all humans no matter what or where. Relevant content connecting to other relevant content. Searchable. Meaningful. OPEN!
 
+>as in most early applications of LLMs, the systems are primarily viewed by executives as a quick and easy way to cut costs and automate systems already rife with problems, frustrated consumers, and underpaid and overtaxed support employees.
+
 >We come up with all different types of excuses. Nobody cared. We all went to Clubhouse and blew this up. You know this guy went to the bank, got whatever he want.
 
->
+>Nobody cares until the carelessness comes back to haunt them
