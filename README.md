@@ -394,6 +394,8 @@
 
 >I am aware of being in a beautiful prison, from which I can only escape by writing.
 
+>troops were sneaking into Mahanaim, just as if they had run away from a battle and were ashamed. 
+
 >N95 and P2 masks work best when they are fit-tested, and these masks will be in limited supply during the next pandemic.
 
 >Knowing how to bring water to one of the driest places on earth means that you hold the very key to life itself.
