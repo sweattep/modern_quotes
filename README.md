@@ -816,6 +816,8 @@
 
 >as in most early applications of LLMs, the systems are primarily viewed by executives as a quick and easy way to cut costs and automate systems already rife with problems, frustrated consumers, and underpaid and overtaxed support employees.
 
+>Givens created an entire development model in which each community would have: 1) producer cooperatives (particularly important for job creation, 2) consumer cooperatives, 3) credit unions, 4) low-income housing cooperatives, and 5) a community cooperative funded by profits from the other cooperatives to develop social programs like schools, hospitals, and child development centers.
+
 >We come up with all different types of excuses. Nobody cared. We all went to Clubhouse and blew this up. You know this guy went to the bank, got whatever he want.
 
 >Nobody cares until the carelessness comes back to haunt them
