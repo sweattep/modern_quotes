@@ -28,6 +28,8 @@
 
 >Stop perpetuating a Web and Web apps that are inaccessible and harmful. For me, this has especially harmed me with the lack of user controls in motion graphics, flickering animations, too many moving animations on a page – um, these are well-known legally binding issues.
 
+>you can essentially shard documents into chunks then store them within a knowledge graph with associated metadata properties. By using vector stores on these literal property nodes, you can perform a level of similarity analysis that is difficult to do with graph algorithms directly, and that can be done far faster
+
 >Our services are built using common data storage technologies specifically assembled into purpose-built, cost-optimized systems
 
 >I've always been a gamer
