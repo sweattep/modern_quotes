@@ -1,5 +1,7 @@
 >Nothing is more readily believed than what&mdash;regardless of the truth&mdash;meets our wishes and illusions half-way
 
+>integrity trumps status, profile, ego and personality
+
 >Events themselves are not important, only the experiences and the lessons that you get from them. Just take it easy
 
 >The team needs the tools to build a system of longevity, and to break out of a survival mode in which there seem to be few survivors.
