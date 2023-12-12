@@ -4,6 +4,8 @@
 
 >Events themselves are not important, only the experiences and the lessons that you get from them. Just take it easy
 
+>When people see that otherness is largely an illusion and that people are people much is achieved.
+
 >The team needs the tools to build a system of longevity, and to break out of a survival mode in which there seem to be few survivors.
 
 >I'd rather be someone's shot of whiskey, than everyone's cup of tea
