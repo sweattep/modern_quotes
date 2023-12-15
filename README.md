@@ -794,6 +794,8 @@
 
 >sources close to Ricky Rubio tell me that Mundo Deportivo is lying. But still, my source is not as reliable as yours
 
+>E3 was irrelevant far before COVID. The rise of streaming and online influencers severely undercut the allure of the industry event for the consumer side of it. Gamescom, Twitchcon, BlizzCon, etc and so many other substitutes were chipping away at the edifice from all angles to the point it was way economically unsustainable.
+
 >excess accumulation of visceral fat (a high visceral fat z-score) at any given BMI was significantly associated with increased risk of CVD and T2D. Conversely, excess amounts of subcutaneous- and liver- fat was associated with a lower risk of cardiovascular disease indicating a potentially protective fat distribution pattern.
 
 >Take a mediocre product, mediocre shoes, sugary drinks, salty snacks, or a mediocre car from Detroit and wrap it in these amazing associations of sex, youth, European elegance, American toughness and pound away with these associations using this incredibly vehicle called broadcast media.
