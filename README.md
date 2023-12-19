@@ -833,3 +833,13 @@
 >We come up with all different types of excuses. Nobody cared. We all went to Clubhouse and blew this up. You know this guy went to the bank, got whatever he want.
 
 >Nobody cares until the carelessness comes back to haunt them
+
+>Spreadsheets are understood by everyone, so starting from there and converting CSV to other formats is the best way to build a shared knowledge base before moving into any format which cannot be read by an office productivity software suite.
+
+>Create a comparison chart between the raw data and the canonical data prior to implementation. Simple unit tests can be used to verify the logic in the code. This will allow you to come to an agreement up front and avoid the process of creating multiple implementations, doing multiple presentations, and  creating multiple sources of technical debt. Tools such as the Wikidata Glossary and Topic Navigation Templates can be used as a transformation target to normalize data based on an international standard.
+
+>Setup a voting system to determine the standards you will be using for numeric values, such as dates, times, and currency. Find numeric equivalents for non-numeric values, such as longitude and latitude coordinates for locations, or Unicode equivalents for emojis.  
+
+>Be explicit in code about the data retention, data structure, and data schema for each and every data point. A name and location for these details should be chosen which is persistent, consistent, and resistant to change, such as a pinboard, collaboration tool, or content management system of your choice. In addition, a Venn Diagram within the document can encapsulate both the relationships between data points and owners, as well as the relationships between owners and policies.
+
+>Create a playbook consisting of steps to read, write, and update each data point. If you have more than one source for a data point, add a step in the playbook to merge and normalize them down to a single source of truth. Research a Common Data Model (CDM) for your industry for non-numeric data. If one exists, take that into consideration, and if it is acceptable, come up with a process and schedule for migrating from your existing data model to a common data model. Otherwise, create a vocabulary document composed of a definition, synonyms, and antonyms to track changes to metadata over time.
