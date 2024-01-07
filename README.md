@@ -848,3 +848,7 @@
 >Create a playbook consisting of steps to read, write, and update each data point. If you have more than one source for a data point, add a step in the playbook to merge and normalize them down to a single source of truth. Research a Common Data Model (CDM) for your industry for non-numeric data. If one exists, take that into consideration, and if it is acceptable, come up with a process and schedule for migrating from your existing data model to a common data model. Otherwise, create a vocabulary document composed of a definition, synonyms, and antonyms to track changes to metadata over time.
 
 >At any point in the processing of a stylesheet, there is a current template rule. Whenever a template rule is chosen by matching a pattern, the template rule becomes the current template rule for the instantiation of the rule's template. When an xsl:for-each element is instantiated, the current template rule becomes null for the instantiation of the content of the xsl:for-each element.
+
+>Better information may actually cause individuals to invest less in their health and become less healthy
+
+>While knowledge about the harms of smoking appears to explain about 15% of the relationship between education and smoking, knowledge about the harms of drinking do not explain differences in drinking by education.
