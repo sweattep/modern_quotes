@@ -854,3 +854,5 @@
 >While knowledge about the harms of smoking appears to explain about 15% of the relationship between education and smoking, knowledge about the harms of drinking do not explain differences in drinking by education.
 
 >Just a few good questions about a program, and careful parsing of the answers, can clarify how well each of these elements is designed and aligns with the others — and lead to significantly better decisions
+
+>If something is important enough to merit significant investment, it's also likely to be complicated enough that efficacy must be prioritized over ease.
