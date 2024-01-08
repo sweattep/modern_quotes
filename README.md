@@ -852,3 +852,5 @@
 >Better information may actually cause individuals to invest less in their health and become less healthy
 
 >While knowledge about the harms of smoking appears to explain about 15% of the relationship between education and smoking, knowledge about the harms of drinking do not explain differences in drinking by education.
+
+>Just a few good questions about a program, and careful parsing of the answers, can clarify how well each of these elements is designed and aligns with the others — and lead to significantly better decisions
