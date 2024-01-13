@@ -865,3 +865,5 @@
 >If something is important enough to merit significant investment, it's also likely to be complicated enough that efficacy must be prioritized over ease.
 
 >There was no diversity and almost no accuracy among the characters of color at all.
+
+>the current status quo that fosters a climate of misclassification of millions of workers as overtime exempt which robs them both of wages and their own personal time
