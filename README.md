@@ -807,6 +807,8 @@
 
 >Take a mediocre product, mediocre shoes, sugary drinks, salty snacks, or a mediocre car from Detroit and wrap it in these amazing associations of sex, youth, European elegance, American toughness and pound away with these associations using this incredibly vehicle called broadcast media.
 
+>Look at your smartphone – almost every fundamental innovation within it is rooted in government funding. 
+
 >men and women who are otherwise kind and law-abiding will indulge in the most revolting forms of cruelty
 
 >I'm just an actor who happens to rap in his spare time
@@ -861,3 +863,5 @@
 >Just a few good questions about a program, and careful parsing of the answers, can clarify how well each of these elements is designed and aligns with the others — and lead to significantly better decisions
 
 >If something is important enough to merit significant investment, it's also likely to be complicated enough that efficacy must be prioritized over ease.
+
+>There was no diversity and almost no accuracy among the characters of color at all.
