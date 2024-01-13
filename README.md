@@ -450,6 +450,8 @@
 
 >The decision not to close schools is based on data from China, which show that there’s no sign of children and young people playing a role in `chains` of transmission
 
+>The key to retaining the value of a degree from your own institution is ensuring your graduates have the skills to change with any market. This means that we must tweak and adapt our curriculum at least every single year.
+
 >An artist is a product. A product that an entire business is built around. I was neither an entrepreneur, nor an employee. I wasn't a freelancer or a contractor. According to current law, being signed to a record label is a relatively undefined position. I was essentially allowed to use my talent and creativity to pursue my dreams, but only through the investment of others.
 
 >As a senior executive, you get paid to make a small number of high quality decisions
