@@ -16,6 +16,8 @@
 
 >Building any sort of web-based business dependent on some irreplaceable third party, such as Google, is risky.
 
+>You can do it part-time. You can work from anywhere. I think the work will be interesting and I’ll be doing it too. I think the work will be important, which is why I’m doing it.
+
 >admission never translated into compensatory action or a genuine commitment to refrain from future interference
 
 >all we've been shouting about all this time is better laws and more respect and all this shouting all this is doing now is getting laws changed so that we can't shout about it no more...and we get less respect anyway
