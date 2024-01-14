@@ -807,6 +807,8 @@
 
 >Take a mediocre product, mediocre shoes, sugary drinks, salty snacks, or a mediocre car from Detroit and wrap it in these amazing associations of sex, youth, European elegance, American toughness and pound away with these associations using this incredibly vehicle called broadcast media.
 
+>Every minute, a staggering 400 hours of video content are uploaded to YouTube
+
 >Look at your smartphone – almost every fundamental innovation within it is rooted in government funding. 
 
 >men and women who are otherwise kind and law-abiding will indulge in the most revolting forms of cruelty
