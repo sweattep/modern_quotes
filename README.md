@@ -522,6 +522,8 @@
 
 >Radiation has long been associated with the development of primary cancers and, when used as treatment, imparts a risk for the development of a second cancer.
 
+>An ETF with the same strategy as a similar ETN would be exposed to the same strategy risks, but not the same structural risks. How complicated is it?
+
 >Leukemia as a secondary cancer can occur following treatment with chemotherapy.
 
 >the multiverse idea allows one to combine both the creation mythology of Christianity with the Nirvana of Buddhism into a single theory that is compatible with known physical laws.
