@@ -877,3 +877,5 @@
 >the current status quo that fosters a climate of misclassification of millions of workers as overtime exempt which robs them both of wages and their own personal time
 
 > Parents never stop worrying about their kids, but kids realise as they get older that they worry about their parents too.
+
+>The only job you start at the top is digging a hole
