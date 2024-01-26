@@ -472,7 +472,9 @@
 
 >actually do work on the political and social layers of electronic freedoms
 
->There must be legal protection against convictions for conduct undeserving of punishment. And indeed there is. The judicial system is not plagued by a multitude of insignificant prosecutions for conduct that merely meets the technical requirements of "a crime" (e.g., theft of a penny) because prosecutorial discretion is effective and because the common law defence of de minimis non curat lex (the law does not care for small or trifling matters) is available to judges.
+>There must be legal protection against convictions for conduct undeserving of punishment. And indeed there is.
+
+>The judicial system is not plagued by a multitude of insignificant prosecutions for conduct that merely meets the technical requirements of "a crime" (e.g., theft of a penny) because prosecutorial discretion is effective and because the common law defence of de minimis non curat lex (the law does not care for small or trifling matters) is available to judges.
 
 >Hiroshi Tanaka took his product team out for beers and asked why a copier drum couldn't be made using the same process used to make a beer can — in other words, could it be cheap and disposable.
 
@@ -486,7 +488,9 @@
 
 >I learned everything it takes to become a superstar while in WWE. That's understanding merchandise, knowing how to look for the hard camera in a match, presenting myself a certain way in interviews.
 
-> Don't think...FEEL! It is like a finger pointing away to the moon. Don't concentrate on the finger or you will miss all that heavenly glory!
+>To be under-served at a shelter under fiscal fraud investigation, dismissed by the legal system, mishandled by law enforcement, wait-listed by Social Services, and wrapped in bureaucratic red tape with Crime Victims' Compensation, I decided to advocate in my own best interest.
+
+>Don't think...FEEL! It is like a finger pointing away to the moon. Don't concentrate on the finger or you will miss all that heavenly glory!
 
 >Individual success depends on team success. Even in a streetfight, a victory that ends in jail is pyrrhic at best.
 
