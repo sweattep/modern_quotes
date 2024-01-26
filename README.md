@@ -544,6 +544,8 @@
 
 >Domain experience trumps everything
 
+>The reason that jsonp is not normally secure is that you are essentially including a script source from a third party domain, which in effect intentionally XSS's your website if the site you are making the request to becomes malicious (intentionally or by being compromised itself). With this implementation a compromised site would only be able to itself compromise a sandboxed domain, and not access e.g. the parent window's cookie.
+
 >Machine learning or more simply put, automated data modeling, is essentially the machine's ability to identify matches based on a model created by similar data.
 
 >the illiterate of the 21st century will not be those who cannot read or write, but those who cannot unlearn the many lies they've been taught to believe.
