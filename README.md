@@ -887,3 +887,5 @@
 > Parents never stop worrying about their kids, but kids realise as they get older that they worry about their parents too.
 
 >The only job you start at the top is digging a hole
+
+>Establishing a balance between forward and backward mapping is a practical art, not a science of design. Clearly, such a balanced, prudent problem definition is not easy to achieve. It means hard work for policy designers, who are well advised to spend up to a third to half of the time allocated to analysis and design in finding and defining the ‘right’ problem.
