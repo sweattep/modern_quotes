@@ -899,3 +899,5 @@
 >You will not solve any problem by settling
 
 >I could do a lot better if you got me a real actor to work with.
+
+>With some people, it's become an issue. I've had people look at me with total shock. Particularly if they hear my voice, because they think that all Black people have a voice that sounds a certain way, and they know it. And I sit there and go, "Oh yeah? Well, sorry, I don't"
