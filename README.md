@@ -896,4 +896,6 @@
 
 >Change will not happen without power, negotiation, and influence.
 
->You will solve any problem by settling
+>You will not solve any problem by settling
+
+>I could do a lot better if you got me a real actor to work with.
