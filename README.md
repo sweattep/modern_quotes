@@ -905,3 +905,6 @@
 >With some people, it's become an issue. I've had people look at me with total shock. Particularly if they hear my voice, because they think that all Black people have a voice that sounds a certain way, and they know it. And I sit there and go, "Oh yeah? Well, sorry, I don't"
 
 >Moderate physical activity has a positive impact on the body because it helps maintain the health of bones, muscles, and joints.
+
+>snitching is not when you're trying to protect yourself from an enemy, it is when you betray a friend
+>
