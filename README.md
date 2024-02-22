@@ -26,6 +26,8 @@
 
 >The essence of linked data is using common terms that have common meanings. No need to create a unique term for a concept that already exists
 
+>I have been told time and time again by my critics that my methods are rubbish because I am not following "best practices", but I contend that the truth is the complete opposite, that my methods are superior simply because I do NOT follow those practices because I have found practices which are demonstrably better. I develop database applications where the software structure is always synchronised with the database structure, so I don't need to waste time with any Object-Relational Mappers. Instead I use my Data Dictionary to construct both the table class file and the table structure file. If I ever change a table's structure all I need to do is to re-import that table's structure into my Data Dictionary and then re-export that structure to replace the table
+
 >If someone asks whether two books are by the same author, Wikidata will answer that they are from the same author if the author is set in both cases as anonymous. If unknown value(Q24238356) would be used instead of anonymous (Q4233718), this problem wouldn't appear. To distinguish unknown (Q24238356), untraceable copyright owner (Q60711924), and anonymous (Q4233718), object has role (P3831) can be used to distinguish those. 
 
 >What motivation is there to become the best at something when there is a clear ceiling on what is possible financially?
