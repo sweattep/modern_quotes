@@ -506,6 +506,8 @@
 
 >There's surprisingly little content that combines the passion of sports and the traditions of original storytelling.
 
+>estimation compares one story to another in terms of complexity or difficulty.
+
 >You can make a living trust to avoid probate for virtually any asset you own &mdash; real estate, bank accounts, vehicles, and so on. At your death, your successor trustee will be able to transfer it to the trust beneficiaries without probate court proceedings
 
 >congress appropriates military funds with alacrity and generosity. It appropriates poverty funds with miserlyness and grudging reluctance.
