@@ -918,4 +918,5 @@
 >Moderate physical activity has a positive impact on the body because it helps maintain the health of bones, muscles, and joints.
 
 >snitching is not when you're trying to protect yourself from an enemy, it is when you betray a friend
->
+
+>A in APL, brought to fruition by Morgan Stanley would later became K and ultimately Q,
