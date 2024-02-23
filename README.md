@@ -50,6 +50,8 @@
 
 >But as you get older, there’s always younger guys that make less than you that are coming up trying to take your job. So, it’s on me to make sure that I prove I should be here.
 
+>All of us grew up around the city and the area, were tied to it, and want to rep it
+
 >An output column's name can be used to refer to the column's value in ORDER BY and GROUP BY clauses, but not in the WHERE or HAVING clauses; there you must write out the expression instead
 
 >People with disabilities are the largest minority group in our country, and the only group any one of us can become a member of at any time.
