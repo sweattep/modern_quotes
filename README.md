@@ -930,3 +930,5 @@
 >A in APL, brought to fruition by Morgan Stanley would later became K and ultimately Q,
 
 >The sinuses are lined with soft, pink tissue called mucosa, which serves to constantly cleanse the sinuses of impurities such as dust, dirt, allergens, pollutants and bacteria. To clear these inhaled pathogens, the sinus lining secretes mucus which is then cleared away by small, hair-like structures called cilia, which act in coordination to sweep the mucus through the sinus pathways and out through the back of the throat. 
+
+>Brands are just tools for consumers to describe their personality
