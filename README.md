@@ -930,6 +930,10 @@
 >A in APL, brought to fruition by Morgan Stanley would later became K and ultimately Q,
 
 >although short, intensive literacy courses may be able to bring an individual to a prescribed reading grade level, experience has consistently show that these skills will be lost unless constantly reinforced. What has been demonstrated about tank gunnery training is equally true of reading skills.
+
+
 >The sinuses are lined with soft, pink tissue called mucosa, which serves to constantly cleanse the sinuses of impurities such as dust, dirt, allergens, pollutants and bacteria. To clear these inhaled pathogens, the sinus lining secretes mucus which is then cleared away by small, hair-like structures called cilia, which act in coordination to sweep the mucus through the sinus pathways and out through the back of the throat. 
 
 >Brands are just tools for consumers to describe their personality
+
+>When you're somebody like myself, in order to be attractive, you have to develop something, you have to learn something, you have to do something. So you become a bit more interesting.
