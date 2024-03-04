@@ -1,3 +1,5 @@
+>Connect through powerful applications of bold monochromatic colour. Colour palettes that deliver real visceral impact generally have a dominant colour that dictates the overall look and feel.
+
 >Instead of just picking the best option, I try to invent new ones.
 
 >Nothing is more readily believed than what&mdash;regardless of the truth&mdash;meets our wishes and illusions half-way
