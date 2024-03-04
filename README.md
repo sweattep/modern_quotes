@@ -38,6 +38,10 @@
 
 >What motivation is there to become the best at something when there is a clear ceiling on what is possible financially?
 
+>Our objective is to work on transforming her t-shirt side gig into a business, and teaching her to develop the discipline and know how to run a respectable and sustainable business.
+
+>It's been hell. She doesn't follow my instructions, or doesn't understand them. She lacks skills I assumed someone who spends that much time texting on her phone would have. She misses deadlines, and lacks all kinds of discipline. She's experienced occasional success. Unfortunately, without an experienced, strict, and selfless mentor to knock the arrogance out of her ego when delusion hits, she eventually lost and missed the opportunities as they came and went.
+
 >We all make mistakes sometimes. They are expected. And we need to build in a safety net for making them.
 
 >Amazon S3 acts as the foundation for all data platforms built on AWS.
