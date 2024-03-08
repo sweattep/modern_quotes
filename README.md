@@ -8,6 +8,8 @@
 
 >the climax of all misnomers
 
+>hourly intentional pause
+
 >Events themselves are not important, only the experiences and the lessons that you get from them. Just take it easy
 
 >When people see that otherness is largely an illusion and that people are people much is achieved.
