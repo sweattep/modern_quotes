@@ -186,6 +186,8 @@
 
 >What are you making? You should never use glue or ink. Have you checked your bike tires for animal fat, your beer for fish bladders, your perfume for beaver castor sac?
 
+>Carotid arteries supply blood flow to facial tissues and the brain. When fat, cholesterol, and other particles build up in the inner carotid walls, they form a plaque that narrows the arteries. This is called stenosis, and is dangerous because it limits blood flow to your brain. Without the necessary blood flow, the brain lacks oxygen and the patient is likely to suffer a stroke.
+
 >The settlement in the second case featured a quid pro quo: employees would be reclassified in order to get overtime but would give up their stock options
 
 >To prove that you are poor, get it in writing. To prove that you are rich, get a rich lawyer.
