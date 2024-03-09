@@ -10,7 +10,7 @@
 
 >hourly intentional pause
 
-can't put a price on my health.
+>can't put a price on my health.
 
 >Events themselves are not important, only the experiences and the lessons that you get from them. Just take it easy
 
