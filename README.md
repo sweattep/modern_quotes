@@ -945,3 +945,5 @@
 >Brands are just tools for consumers to describe their personality
 
 >When you're somebody like myself, in order to be attractive, you have to develop something, you have to learn something, you have to do something. So you become a bit more interesting.
+
+>Toriyama entered the manga industry by submitting a work to an amateur contest
