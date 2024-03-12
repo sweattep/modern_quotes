@@ -14,6 +14,8 @@
 
 >Events themselves are not important, only the experiences and the lessons that you get from them. Just take it easy
 
+>When you are not having a loving, caring, and kind relationship with your own inner child, you will project your own wounds into your children. 
+
 >When people see that otherness is largely an illusion and that people are people much is achieved.
 
 >The team needs the tools to build a system of longevity, and to break out of a survival mode in which there seem to be few survivors.
