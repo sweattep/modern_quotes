@@ -2,6 +2,8 @@
 
 >Instead of just picking the best option, I try to invent new ones.
 
+>alliance between rival gangs was forming to overthrow
+>
 >Nothing is more readily believed than what&mdash;regardless of the truth&mdash;meets our wishes and illusions half-way
 
 >integrity trumps status, profile, ego and personality
