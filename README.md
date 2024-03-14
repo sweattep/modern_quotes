@@ -6,6 +6,8 @@
 
 >Fatigue and sleep deprivation are correlated to mandatory and voluntary overtime and are also associated with work-related accidents
 
+>involuntary job loss for older adults was connected to health declines and even morbidity
+
 >Nothing is more readily believed than what&mdash;regardless of the truth&mdash;meets our wishes and illusions half-way
 
 >integrity trumps status, profile, ego and personality
