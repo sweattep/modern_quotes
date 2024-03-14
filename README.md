@@ -24,6 +24,8 @@
 
 >When people see that otherness is largely an illusion and that people are people much is achieved.
 
+>Normally this is when we make those types stupid a-- trades and then somebody comes and then everything messes up.
+
 >The team needs the tools to build a system of longevity, and to break out of a survival mode in which there seem to be few survivors.
 
 >I'd rather be someone's shot of whiskey, than everyone's cup of tea
