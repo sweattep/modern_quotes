@@ -20,6 +20,10 @@
 
 >can't put a price on my health.
 
+
+
+> I'm not working multiple jobs beyond this year. It's fully unsustainable and it's not fun. Therefore we pivot. I'm getting my life back. I'm completely over saving TWiT yoy. Yesterday's miracle is now tomorrow's expected. And it's fully unrealistic to expect me to work like a dog forever.
+
 >Events themselves are not important, only the experiences and the lessons that you get from them. Just take it easy
 
 >When you are not having a loving, caring, and kind relationship with your own inner child, you will project your own wounds into your children. 
