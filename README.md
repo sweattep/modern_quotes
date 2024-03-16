@@ -20,7 +20,7 @@
 
 >can't put a price on my health.
 
-> I'm not working multiple jobs beyond this year. It's fully unsustainable and it's not fun. Therefore we pivot. I'm getting my life back. I'm completely over saving TWiT yoy. Yesterday's miracle is now tomorrow's expected. And it's fully unrealistic to expect me to work like a dog forever.
+>I'm not working multiple jobs beyond this year. It's fully unsustainable and it's not fun. Therefore we pivot. I'm getting my life back. I'm completely over saving TWiT yoy. Yesterday's miracle is now tomorrow's expected. And it's fully unrealistic to expect me to work like a dog forever.
 
 >Events themselves are not important, only the experiences and the lessons that you get from them. Just take it easy
 
@@ -53,6 +53,8 @@
 >develop a consistent method to parse through all...find a trend among all
 
 >I have been told time and time again by my critics that my methods are rubbish because I am not following "best practices", but I contend that the truth is the complete opposite, that my methods are superior simply because I do NOT follow those practices because I have found practices which are demonstrably better. I develop database applications where the software structure is always synchronised with the database structure, so I don't need to waste time with any Object-Relational Mappers. Instead I use my Data Dictionary to construct both the table class file and the table structure file. If I ever change a table's structure all I need to do is to re-import that table's structure into my Data Dictionary and then re-export that structure to replace the table
+
+>Incomplete or unclear requirements, a cryptic syntax used for some test applications—especially script-based test sets, variability in syntax or structure, and changing requirements are among the problems encountered in one tester. Such problems are common to all software but can be particularly problematic in test equipment software intended to test another product. Each of these issues increases the probability of error injection during test application development.
 
 >If someone asks whether two books are by the same author, Wikidata will answer that they are from the same author if the author is set in both cases as anonymous. If unknown value(Q24238356) would be used instead of anonymous (Q4233718), this problem wouldn't appear. To distinguish unknown (Q24238356), untraceable copyright owner (Q60711924), and anonymous (Q4233718), object has role (P3831) can be used to distinguish those. 
 
