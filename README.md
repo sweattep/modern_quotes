@@ -4,7 +4,7 @@
 
 >alliance between rival gangs was forming to overthrow
 
->
+>You'll probably save a fortune in recruiting and hiring costs because your staff will stick around and work hard when they feel valued. Revolving doors are expensive.
 
 >Fatigue and sleep deprivation are correlated to mandatory and voluntary overtime and are also associated with work-related accidents
 
