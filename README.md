@@ -56,6 +56,8 @@
 
 >Incomplete or unclear requirements, a cryptic syntax used for some test applications—especially script-based test sets, variability in syntax or structure, and changing requirements are among the problems encountered in one tester. Such problems are common to all software but can be particularly problematic in test equipment software intended to test another product. Each of these issues increases the probability of error injection during test application development.
 
+>Legal interpretation: the legal experts use the diff-text and the graphs of the user-interface for providing a legal interpretation. In this step we also refine the light-taxonomy adding legal meaning. The same error could have different meanings and semantics depending also on the topic, so the legal interpretation is a fundamental part of the research.
+
 >If someone asks whether two books are by the same author, Wikidata will answer that they are from the same author if the author is set in both cases as anonymous. If unknown value(Q24238356) would be used instead of anonymous (Q4233718), this problem wouldn't appear. To distinguish unknown (Q24238356), untraceable copyright owner (Q60711924), and anonymous (Q4233718), object has role (P3831) can be used to distinguish those. 
 
 >What motivation is there to become the best at something when there is a clear ceiling on what is possible financially?
