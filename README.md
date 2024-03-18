@@ -968,3 +968,5 @@
 >Toriyama entered the manga industry by submitting a work to an amateur contest
 
 >Those are the ones who have purchased error [in exchange] for guidance, so their transaction has brought no profit, nor were they guided.
+
+>As far as I can see, we are the only professional sports league that self distributes across a high multiple of live social channels to drive top of the funnel discovery and engagement.
