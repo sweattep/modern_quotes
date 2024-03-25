@@ -1,5 +1,7 @@
 >Jeet Kune-Do is simply the direct expression of one's feelings with the minimum of movements and energy
 
+>There is nothing so useless as doing efficiently that which should not be done at all.
+
 >Connect through powerful applications of bold monochromatic colour. Colour palettes that deliver real visceral impact generally have a dominant colour that dictates the overall look and feel.
 
 >Instead of just picking the best option, I try to invent new ones.
