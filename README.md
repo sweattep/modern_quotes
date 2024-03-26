@@ -50,7 +50,7 @@
 
 >all we've been shouting about all this time is better laws and more respect and all this shouting all this is doing now is getting laws changed so that we can't shout about it no more...and we get less respect anyway
 
->When you're listening to something that depicts having a better life, and you're not having a better life, it must have an effect on you.[
+>When you're listening to something that depicts having a better life, and you're not having a better life, it must have an effect on you...
 
 >The essence of linked data is using common terms that have common meanings. No need to create a unique term for a concept that already exists
 
