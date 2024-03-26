@@ -186,6 +186,8 @@
 
 >No one teaches us how to run our own businesses
 
+>I analyze how teacher education policy discourses position teachers as agents of social control whose work is to preserve the status quo and to legitimize the current structures of domination. This positioning is accomplished through the technocratization of teacher knowledge and depoliticization of diversity and equity in teacher preparation
+
 >organic traffic is mostly self-sustaining after you've put in the time and effort to create a blog post
 
 >About damn time! Pooncoo
