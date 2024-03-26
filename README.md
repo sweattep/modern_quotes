@@ -975,4 +975,6 @@
 
 >Those are the ones who have purchased error [in exchange] for guidance, so their transaction has brought no profit, nor were they guided.
 
+>We all just were in shock, and we looked at each other like, did we just hear that? ... Everybody was in shock — our cheerleaders, our students that were in that area that heard it clearly were just frozen
+
 >As far as I can see, we are the only professional sports league that self distributes across a high multiple of live social channels to drive top of the funnel discovery and engagement.
