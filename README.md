@@ -10,6 +10,8 @@
 
 >You'll probably save a fortune in recruiting and hiring costs because your staff will stick around and work hard when they feel valued. Revolving doors are expensive.
 
+>Resorting to technical language means you are determined to treat the masses as uninitiated
+>
 >Fatigue and sleep deprivation are correlated to mandatory and voluntary overtime and are also associated with work-related accidents
 
 >involuntary job loss for older adults was connected to health declines and even morbidity
