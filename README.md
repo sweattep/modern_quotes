@@ -272,6 +272,8 @@
 
 >I'm a point guard. If I'm 0-for-f-----g-9, I'm not shooting 20 more shots. Not going to happen. I'm a point guard. I'm going to find somebody else.
 
+>These were later collected and are very good, very precise in the way of an engineer with a poet's soul, which is yet another facet of Wolfe's work.
+
 >We don't advocate for particular policies or reforms
 
 >articulate a singular mission or clear product vision and build confidence internally that we can execute against it.
