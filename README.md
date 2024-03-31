@@ -6,6 +6,8 @@
 
 >Instead of just picking the best option, I try to invent new ones.
 
+>suggest topics to editors, share their knowledge, create content, contribute money, and support the mission of the publication
+
 >alliance between rival gangs was forming to overthrow
 
 >You'll probably save a fortune in recruiting and hiring costs because your staff will stick around and work hard when they feel valued. Revolving doors are expensive.
