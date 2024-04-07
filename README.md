@@ -13,7 +13,7 @@
 >You'll probably save a fortune in recruiting and hiring costs because your staff will stick around and work hard when they feel valued. Revolving doors are expensive.
 
 >Resorting to technical language means you are determined to treat the masses as uninitiated
->
+
 >Fatigue and sleep deprivation are correlated to mandatory and voluntary overtime and are also associated with work-related accidents
 
 >involuntary job loss for older adults was connected to health declines and even morbidity
@@ -89,6 +89,10 @@
 >Anyone can make a video game...start with Tic-Tac-Toe
 
 >Sell the lifestyle
+
+sell the goods that are less popular
+
+>demand exists. even though products aren't popular enough for stores to carry them
 
 >But as you get older, there’s always younger guys that make less than you that are coming up trying to take your job. So, it’s on me to make sure that I prove I should be here.
 
