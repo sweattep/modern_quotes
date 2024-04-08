@@ -2,6 +2,8 @@
 
 >There is nothing so useless as doing efficiently that which should not be done at all.
 
+>And often to understand something you have to work it out yourself because no one else has done it
+
 >Connect through powerful applications of bold monochromatic colour. Colour palettes that deliver real visceral impact generally have a dominant colour that dictates the overall look and feel.
 
 >Instead of just picking the best option, I try to invent new ones.
