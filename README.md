@@ -993,6 +993,8 @@ sell the goods that are less popular
 
 >Toriyama entered the manga industry by submitting a work to an amateur contest
 
+>Her timing, pace, drama, energy was perfect!
+
 >Those are the ones who have purchased error [in exchange] for guidance, so their transaction has brought no profit, nor were they guided.
 
 >We all just were in shock, and we looked at each other like, did we just hear that? ... Everybody was in shock — our cheerleaders, our students that were in that area that heard it clearly were just frozen
