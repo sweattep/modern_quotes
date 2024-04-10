@@ -22,6 +22,8 @@
 
 >Nothing is more readily believed than what&mdash;regardless of the truth&mdash;meets our wishes and illusions half-way
 
+>Anarchy is Order Without Power
+
 >integrity trumps status, profile, ego and personality
 
 >the climax of all misnomers
