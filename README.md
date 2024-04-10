@@ -10,6 +10,8 @@
 
 >suggest topics to editors, share their knowledge, create content, contribute money, and support the mission of the publication
 
+>Everyone told me I was going to be mellow by now. I've got a house, I grow my own vegetables, and I'm still angry.
+
 >alliance between rival gangs was forming to overthrow
 
 >You'll probably save a fortune in recruiting and hiring costs because your staff will stick around and work hard when they feel valued. Revolving doors are expensive.
