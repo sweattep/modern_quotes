@@ -8,6 +8,8 @@
 
 >Instead of just picking the best option, I try to invent new ones.
 
+>when you remove the notion of self, you are free
+
 >suggest topics to editors, share their knowledge, create content, contribute money, and support the mission of the publication
 
 >Everyone told me I was going to be mellow by now. I've got a house, I grow my own vegetables, and I'm still angry.
