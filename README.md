@@ -568,6 +568,8 @@ sell the goods that are less popular
 
 >You would start new business, a new economy and new executives. This is what we did with hip hop, this is how it started - trading amongst ourselves. It’s just that we got sidetracked when the corporate executives came into the game and started making his own money out the game and his economics ravished our economics because his was worldwide when ours was regional. Now, our economics is worldwide and his economics is regional and about to collapse.
 
+>Most family corporations have rules that dictate a stipulated time period that a young family member has to work elsewhere to gain experience before returning.
+
 >Hip-Hop is a word of mouth, street culture. That’s what it is. It’s not a technology culture
 
 >targeted application developers with self-service offerings as a `foot in the door` to larger enterprise accounts.
