@@ -1015,4 +1015,5 @@ sell the goods that are less popular
 
 >We all just were in shock, and we looked at each other like, did we just hear that? ... Everybody was in shock — our cheerleaders, our students that were in that area that heard it clearly were just frozen
 
->As far as I can see, we are the only professional sports league that self distributes across a high multiple of live social channels to drive top of the funnel discovery and engagement.
+>accepted so fully as an equal (and so often admired as a superior)
+    acce>As far as I can see, we are the only professional sports league that self distributes across a high multiple of live social channels to drive top of the funnel discovery and engagement.
