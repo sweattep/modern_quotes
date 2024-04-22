@@ -14,6 +14,8 @@
 
 >suggest topics to editors, share their knowledge, create content, contribute money, and support the mission of the publication
 
+>the same processes that seem to threaten well-being when people are completely free to choose what to buy also threaten well-being when people are completely free to choose how or who to be.
+
 >Everyone told me I was going to be mellow by now. I've got a house, I grow my own vegetables, and I'm still angry.
 
 >alliance between rival gangs was forming to overthrow
