@@ -164,6 +164,8 @@ sell the goods that are less popular
 
 >Nobody advocating for helping the poor actually wants anyone who's poor to be in power. 
 
+>Unconditional cash and basic income initiatives have proven to be effective in low-income countries and socially and economically disadvantaged communities around the world.
+
 >They give out free, nearly useless, substandard education while at the same time demanding that existing workers learn to be more pliable and agreeable.
 
 >They literally want everyone to be free to become a programmer, but programmers to study only approved courses from top notch institutions that cost tons of money.
