@@ -2,7 +2,7 @@
 
 >There is nothing so useless as doing efficiently that which should not be done at all.
 
-What is lowly esteemed among men is a dedication to God
+>What is lowly esteemed among men is a dedication to God
 
 >Baseball has been good to me since I quit trying to play it.
 
