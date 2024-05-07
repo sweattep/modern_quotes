@@ -1021,7 +1021,10 @@ sell the goods that are less popular
 
 >Those are the ones who have purchased error [in exchange] for guidance, so their transaction has brought no profit, nor were they guided.
 
+>The potential that ML offers for us is exciting, but even the best AI models introduce unexpected errors, were mostly trained on contemporary materials, and struggle when asked to process materials produced by people living in a time without computers. A classic example is image recognition systems that may label an object from a 19th century photograph a cellphone.
+
 >We all just were in shock, and we looked at each other like, did we just hear that? ... Everybody was in shock — our cheerleaders, our students that were in that area that heard it clearly were just frozen
 
 >accepted so fully as an equal (and so often admired as a superior)
-    acce>As far as I can see, we are the only professional sports league that self distributes across a high multiple of live social channels to drive top of the funnel discovery and engagement.
+
+>As far as I can see, we are the only professional sports league that self distributes across a high multiple of live social channels to drive top of the funnel discovery and engagement.
