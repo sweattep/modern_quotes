@@ -16,6 +16,8 @@
 
 >when you remove the notion of self, you are free
 
+>you don't care about free speech, because you have nothing to say
+
 >suggest topics to editors, share their knowledge, create content, contribute money, and support the mission of the publication
 
 >the same processes that seem to threaten well-being when people are completely free to choose what to buy also threaten well-being when people are completely free to choose how or who to be.
