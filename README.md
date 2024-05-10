@@ -1030,3 +1030,6 @@ sell the goods that are less popular
 >accepted so fully as an equal (and so often admired as a superior)
 
 >As far as I can see, we are the only professional sports league that self distributes across a high multiple of live social channels to drive top of the funnel discovery and engagement.
+
+>we love only what we do not possess
+>we love only what we do not possess
