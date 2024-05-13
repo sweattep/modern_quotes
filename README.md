@@ -1,4 +1,6 @@
->I would love to make a rap album. I just think it’d be an awesome challenge to do a fire-ass album at 48 years old
+>tell me a story, and it will live in my heart forever.
+
+>I would love to make a rap album. I just think it'd be an awesome challenge to do a fire-ass album at 48 years old
 
 >Jeet Kune-Do is simply the direct expression of one's feelings with the minimum of movements and energy
 
