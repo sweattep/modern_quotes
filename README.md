@@ -2,6 +2,8 @@
 
 >I would love to make a rap album. I just think it'd be an awesome challenge to do a fire-ass album at 48 years old
 
+>As metabolism slows, the need for fats, particularly omega-3 fatty acids, becomes more prominent.
+
 >Jeet Kune-Do is simply the direct expression of one's feelings with the minimum of movements and energy
 
 >Where you can't delegate, find a way to delegate
