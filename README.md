@@ -1,5 +1,10 @@
 >tell me a story, and it will live in my heart forever.
 
+>Sometimes the old ways are best
+
+>People are aware that they cannot continue in the same old way but are immobilized because they cannot imagine an alternative.
+
+
 >I would love to make a rap album. I just think it'd be an awesome challenge to do a fire-ass album at 48 years old
 
 >As metabolism slows, the need for fats, particularly omega-3 fatty acids, becomes more prominent.
