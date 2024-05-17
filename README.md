@@ -4,6 +4,7 @@
 
 >People are aware that they cannot continue in the same old way but are immobilized because they cannot imagine an alternative.
 
+>It's very hard to teach someone to see things clearly when they really don't just innately.
 
 >I would love to make a rap album. I just think it'd be an awesome challenge to do a fire-ass album at 48 years old
 
