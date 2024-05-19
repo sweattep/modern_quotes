@@ -2,6 +2,8 @@
 
 >Sometimes the old ways are best
 
+>It is the only advanced economy that does not guarantee its workers paid vacation nationally[300] and is one of a few countries in the world without federal paid family leave as a legal right
+
 >People are aware that they cannot continue in the same old way but are immobilized because they cannot imagine an alternative.
 
 >It's very hard to teach someone to see things clearly when they really don't just innately.
