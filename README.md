@@ -686,6 +686,8 @@ sell the goods that are less popular
 
 >1N73LL1G3NC3 15 7H3 4B1L1TY 2 4D4P7 2 CH4NG3
 
+>we can tell a story within a story a lot of times, not because you came up with it the night before or before the match or while you were talking about spots, but it happens organically
+
 >I always believe that the easy way is the right way
 
 >Make your own shows with private funding and get them out there asap and everywhere you can
