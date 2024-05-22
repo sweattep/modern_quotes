@@ -366,6 +366,8 @@ sell the goods that are less popular
 
 >If you are talking about sport, that is one thing. But when you are talking about combat – as it is – well then, baby, you'd better train every part of your body.
 
+>Out of all of them came much talk. Out of none of them came any effective solutions...
+
 >Gung fu is so extraordinary because it is nothing at all special, it is simply the direct expression of one's feeling with the minimum of lines and energy.
 
 >the coach needs to provide the direction, then it’s up to the players to execute
