@@ -1,3 +1,5 @@
+>if i had a job before the dawn of the internet, the typewriter, and the calculator, what would it be?
+
 >tell me a story, and it will live in my heart forever.
 
 >Sometimes the old ways are best
