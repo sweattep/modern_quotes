@@ -402,7 +402,7 @@ sell the goods that are less popular
 
 >We're the party who opposes slavery and who opposes wage slavery.
 
->What if I told you insane was working fifty hours a week in some office for fifty years at the end of which they tell you to piss off; ending up in some retirement village hoping to die before suffering the indignity of trying to make it to the toilet on time?
+>if there's not too many things to go see, you lose the habit and lose the will to get yourself up off your couch
 
 >The only difference as compared with the old, outspoken slavery is this, that the worker of today seems to be free because he is not sold once for all, but piecemeal by the day, the week, the year, and because no one owner sells him to another, but he is forced to sell himself in this way instead, being the slave of no particular person, but of the whole property-holding class.
 
