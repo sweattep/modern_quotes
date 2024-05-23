@@ -6,6 +6,8 @@
 
 >It is the only advanced economy that does not guarantee its workers paid vacation nationally[300] and is one of a few countries in the world without federal paid family leave as a legal right
 
+>everything that's in the news about any subject is about something somebody said or did
+
 >People are aware that they cannot continue in the same old way but are immobilized because they cannot imagine an alternative.
 
 >It's very hard to teach someone to see things clearly when they really don't just innately.
@@ -405,6 +407,8 @@ sell the goods that are less popular
 >if there's not too many things to go see, you lose the habit and lose the will to get yourself up off your couch
 
 >The only difference as compared with the old, outspoken slavery is this, that the worker of today seems to be free because he is not sold once for all, but piecemeal by the day, the week, the year, and because no one owner sells him to another, but he is forced to sell himself in this way instead, being the slave of no particular person, but of the whole property-holding class.
+
+>the most class conscious of the race
 
 >It must be acknowledged that our worker emerges from the process of production looking different from when he entered it.
 
