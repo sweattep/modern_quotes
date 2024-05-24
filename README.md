@@ -152,7 +152,7 @@ sell the goods that are less popular
 
 >People with disabilities are the largest minority group in our country, and the only group any one of us can become a member of at any time.
 
->I never imagined that marriage would become a haven for me! But it has, and from that experience all I can say is I carry remorse for insisting on such an independent life. It wasn’t conducive for me in the full arc of the last half century.
+>I never imagined that marriage would become a haven for me! But it has, and from that experience all I can say is I carry remorse for insisting on such an independent life. It wasn't conducive for me in the full arc of the last half century.
 
 >It seemed that the definition of done changed depending on the function of the team member
 
@@ -729,6 +729,8 @@ sell the goods that are less popular
 >Courage is somewhere between cowardice and recklessness. Confidence between crippling self-doubt and blinding arrogance. Hard work between workaholism and laziness.
 
 >Never forget that intelligence rules the world and ignorance carries the burden
+
+>Creating the unittests for the software has no direct business value. These tasks are often delayed for a next sprint (which is... never). Therefore, striving towards an MVP is ignored, and the definition of done is compromised instead.
 
 >What's your alma mater? Books
 
