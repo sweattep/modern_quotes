@@ -803,6 +803,8 @@ sell the goods that are less popular
 
 >tax systems designed to force the population into the labor market through debt
 
+>they simultaneously abolished slavery and imposed a government that similarly did not even pretend to be based on a social contract or the will of the governed, but was simply based on superior firepower
+
 >we helped the property owner recover some of their equity in the form of excess proceeds that were the result of the auction buyer paying more for the property than the taxes owing to the county
 
 >Someone with nothing to sell but his or her body cannot in any sense by considered a genuinely free agent
