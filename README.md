@@ -4,6 +4,8 @@
 
 >Sometimes the old ways are best
 
+>U.S. Grand Strategy: Mission Impossible
+
 >It is the only advanced economy that does not guarantee its workers paid vacation nationally[300] and is one of a few countries in the world without federal paid family leave as a legal right
 
 >everything that's in the news about any subject is about something somebody said or did
