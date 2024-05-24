@@ -54,6 +54,10 @@
 
 >managers reportedly worked "a minimum of forty-eight hours a week, but more likely fifty-five and sixty, eating on the fly and never quite sure when they'll leave for the evening."
 
+>delays resulted from chronic understaffing or procedures with little provision for flexibility. These issues are of increasing importance when contractors are given incentives to perform within what are, in effect, fixed test budgets and schedules
+
+>The committee also identified chronic understaffing and a lack of experience
+>
 >Resorting to technical language means you are determined to treat the masses as uninitiated
 
 >Fatigue and sleep deprivation are correlated to mandatory and voluntary overtime and are also associated with work-related accidents
@@ -140,7 +144,7 @@ sell the goods that are less popular
 
 >demand exists. even though products aren't popular enough for stores to carry them
 
->But as you get older, there’s always younger guys that make less than you that are coming up trying to take your job. So, it’s on me to make sure that I prove I should be here.
+>But as you get older, there’s always younger guys that make less than you that are coming up trying to take your job. So, it's on me to make sure that I prove I should be here.
 
 >All of us grew up around the city and the area, were tied to it, and want to rep it
 
