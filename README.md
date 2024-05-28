@@ -991,6 +991,8 @@ sell the goods that are less popular
 
 >Givens created an entire development model in which each community would have: 1) producer cooperatives (particularly important for job creation, 2) consumer cooperatives, 3) credit unions, 4) low-income housing cooperatives, and 5) a community cooperative funded by profits from the other cooperatives to develop social programs like schools, hospitals, and child development centers.
 
+>Speak directly and shoot from the hip. Be real and be authentic. Be kind and be good to people. Share the lessons you’ve learned - good and bad. Laugh at yourself. Don't get pulled into negative sludge and never contribute to toxicity. Laugh at yourself some more. And always remember, the golden rule - It’s nice to be important, but it's more important to be nice
+
 >We come up with all different types of excuses. Nobody cared. We all went to Clubhouse and blew this up. You know this guy went to the bank, got whatever he want.
 
 >Nobody cares until the carelessness comes back to haunt them
