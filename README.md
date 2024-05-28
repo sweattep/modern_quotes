@@ -186,6 +186,8 @@ sell the goods that are less popular
 
 >having a single benefactor for a non-profit is almost a death sentence. It's super risky, and as we've seen here, when that single donor goes away, it's all over.
 
+>By 1976, the cost of the cheapest four-function pocket calculator had dropped to a few dollars, about 1/20 of the cost five years before. The results of this were that the pocket calculator was affordable, and that it was now difficult for the manufacturers to make a profit from calculators, leading to many firms dropping out of the business or closing. The firms that survived making calculators tended to be those with high outputs of higher quality calculators, or producing high-specification scientific and programmable calculators.
+
 >celtics told robert williams playing through injury won't make knee worse
 
 >The medical staff has ensured him that he is not at further risk of worsening the repaired knee. It's all a matter of pain tolerance.
