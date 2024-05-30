@@ -668,6 +668,8 @@ sell the goods that are less popular
 
 >the multiverse idea allows one to combine both the creation mythology of Christianity with the Nirvana of Buddhism into a single theory that is compatible with known physical laws.
 
+>settling antitrust lawsuits wouldn't have happened if others hadn't fought
+
 >The clinical and molecular studies presented clearly indicate that physical activity leads to metabolic transformations resulting in a decrease of CRC risk. Additionally, weight reduction induced by physical exercise in overweight and obese individuals might also be protective.
 
 >Curcumin is effective in promoting apoptosis and inhibiting DNA mutations, cancer cell proliferation, metastasis, and inflammation.
