@@ -148,6 +148,8 @@ sell the goods that are less popular
 
 >sell less of more
 
+>there are only four ways to leave your business: sell, close, transition it, or through death.
+
 >demand exists. even though products aren't popular enough for stores to carry them
 
 >But as you get older, there’s always younger guys that make less than you that are coming up trying to take your job. So, it's on me to make sure that I prove I should be here.
