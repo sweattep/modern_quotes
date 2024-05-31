@@ -6,6 +6,8 @@
 
 >tell me a story, and it will live in my heart forever.
 
+>I'll never let them forget it.
+
 >Sometimes the old ways are best
 
 >I wrote what I needed to write and hear
