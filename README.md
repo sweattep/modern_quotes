@@ -1,5 +1,7 @@
 >if i had a job before the dawn of the internet, the typewriter, and the calculator, what would it be?
 
+>no man is thought worthy of a voice in politics unless he ignores or does not know nine-tenths of the most important relevant facts.
+
 >being forgotten is a function of time
 
 >Everything in the physical world is a race against two things: time and circumstances
