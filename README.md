@@ -2,6 +2,8 @@
 
 >no man is thought worthy of a voice in politics unless he ignores or does not know nine-tenths of the most important relevant facts.
 
+>If there were two me's, it might not be as loud in the locker room as it needs to be at times, and if there were two of him, nobody would know when to shut up. It's the perfect balance.
+
 >being forgotten is a function of time
 
 >Everything in the physical world is a race against two things: time and circumstances
