@@ -940,7 +940,7 @@ sell the goods that are less popular
 >They survived by keeping aloof from the others. Admixture of blood made little difference, since what kept them together was something ideal&mdash;thepossession they had in common of certain intellectual and emotional values.
 
 >obesity was not associated with health insurance among Black and Asian
->
+
 >The media's the most powerful entity on earth. They have the power
 
 >I believe we must document and record our own history. If we don't&hellip;who will
@@ -958,6 +958,8 @@ sell the goods that are less popular
 >You should at the same time be found guilty of that most criminal act which you professedly detested in others
 
 >an illiterate man can be a far more 'educated' voter than someone with an advanced degree.
+
+>workout after every snack
 
 >listen carefully to country people's sayings
 
