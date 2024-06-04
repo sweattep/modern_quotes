@@ -1099,5 +1099,7 @@ sell the goods that are less popular
 
 >As far as I can see, we are the only professional sports league that self distributes across a high multiple of live social channels to drive top of the funnel discovery and engagement.
 
+>People are putting all of their time and resources into technology owned by other companies--years of work could be lost in a moments time with no warning. I recognize there is a fine balance between being a user of a helpful program and developing true skill sets that will allow you to take ownership of your work outside of consumer generated media focused websites. It is essential to build your technical capacity and have ownership of your own platform, such as a personal website. This is a platform where your voice can be heard rather than relying on a community website--develop your own true fans and followings rather than relying on a corporation to do it for you.
+
 >we love only what we do not possess
 >we love only what we do not possess
