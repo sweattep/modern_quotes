@@ -226,6 +226,8 @@ sell the goods that are less popular
 
 >They give out free, nearly useless, substandard education while at the same time demanding that existing workers learn to be more pliable and agreeable.
 
+>There are so many free code editors which means it's not a good business to be in anymore.
+
 >They literally want everyone to be free to become a programmer, but programmers to study only approved courses from top notch institutions that cost tons of money.
 
 >They treated that game 6 like it was a game 7 and then they treated game 7 like it was a preseason
