@@ -198,6 +198,9 @@ sell the goods that are less popular
 
 >Most established companies that can amortize capital investments over a few years should seriously reconsider the cloud craze. The benefits have been vastly overstated. The cloud is often just as complicated as running things yourself, and it's usually ridiculously more expensive.
 
+>There's been a lot of talk in the community about how RSS 2.0 is too complicated. I haven’t heard any objections, so I’m going to move ahead with the following changes that will result in RSS 3.0.
+>1. Remove XML
+
 >I saw several different ways in which things could be done, but I never regarded them as the only way in which things should be done. I already knew what I wanted to achieve, so I experimented with different ways in order to find the one that worked best for me, meaning that it had be be both simple and reliable. I was aided by the fact that instead of a basic text editor I had managed to find a proper IDE with a symbolic debugger so that I could step through the running code line by line to see exactly what was happening if a problem appeared. I had already used an IDE with a debugger in my previous language, so I knew how valuable it could be.
 
 >having a single benefactor for a non-profit is almost a death sentence. It's super risky, and as we've seen here, when that single donor goes away, it's all over.
