@@ -745,6 +745,8 @@ sell the goods that are less popular
 
 >Was Jesus homeless?
 
+>Even Jesus didn’t heal every person He came across and took time alone
+
 >Light has no meaning without darkness
 
 >If you can sell water you can sell anything
