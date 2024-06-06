@@ -6,6 +6,10 @@
 
 >If there were two me's, it might not be as loud in the locker room as it needs to be at times, and if there were two of him, nobody would know when to shut up. It's the perfect balance.
 
+>Schools strove to instill thrift, competition, and a Protestant work ethic into Kanaka Maoli children while the children of American elites and missionaries attended private schools
+
+>Moments of pleasure are merely gaps in the stream of pain.
+
 >being forgotten is a function of time
 
 >Everything in the physical world is a race against two things: time and circumstances
