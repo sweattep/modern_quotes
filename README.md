@@ -8,6 +8,8 @@
 
 >Schools strove to instill thrift, competition, and a Protestant work ethic into Kanaka Maoli children while the children of American elites and missionaries attended private schools
 
+>But going from college to the NBA as a coach is way harder than doing it as a player
+
 >Moments of pleasure are merely gaps in the stream of pain.
 
 >being forgotten is a function of time
