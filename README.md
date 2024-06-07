@@ -146,6 +146,8 @@
 
 >It's been hell. She doesn't follow my instructions, or doesn't understand them. She lacks skills I assumed someone who spends that much time texting on her phone would have. She misses deadlines, and lacks all kinds of discipline. She's experienced occasional success. Unfortunately, without an experienced, strict, and selfless mentor to knock the arrogance out of her ego when delusion hits, she eventually lost and missed the opportunities as they came and went.
 
+>Yoga has the potential to be a cost-effective treatment and prevention strategy
+
 >We all make mistakes sometimes. They are expected. And we need to build in a safety net for making them.
 
 >Amazon S3 acts as the foundation for all data platforms built on AWS.
