@@ -2,6 +2,8 @@
 
 >I didn't need to go to school for this
 
+>there's no patience, there's no foresight, there's no vision and there's no leadership
+
 >imaginations have shrunk from Pan-Africanist visions of self-determination to citizenship
 
 >no man is thought worthy of a voice in politics unless he ignores or does not know nine-tenths of the most important relevant facts.
