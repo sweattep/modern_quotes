@@ -265,6 +265,8 @@ sell the goods that are less popular
 
 >stop explaining yourself to fools
 
+>learn to create jobs for ourselves
+
 >If a man guards a book year after year, which is more important, the man or the book?
 
 >A book will outlive a man, a tool will outlive a book, a song will outlive them all
