@@ -8,6 +8,8 @@
 
 >no man is thought worthy of a voice in politics unless he ignores or does not know nine-tenths of the most important relevant facts.
 
+>The Internet Archive is now leveraging a little known, and perhaps never used, provision of US copyright law, Section 108h, which allows libraries to scan and make available materials published 1923 to 1941 if they are not being actively sold.
+
 >If there were two me's, it might not be as loud in the locker room as it needs to be at times, and if there were two of him, nobody would know when to shut up. It's the perfect balance.
 
 >Schools strove to instill thrift, competition, and a Protestant work ethic into Kanaka Maoli children while the children of American elites and missionaries attended private schools
