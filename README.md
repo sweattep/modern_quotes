@@ -475,6 +475,8 @@ sell the goods that are less popular
 
 >It's not an odd view, that there isn't much difference between selling yourself and renting yourself.
 
+>the first show of firearms in western Europe may have been by the Moors, at Saragossa, in A.D. 1118. In later years the Spaniards turned the new weapon against their Moorish enemies at the siege of Cordova (1280) and the capture of Gibraltar (1306).
+
 >You have a choice between starving or selling yourself into tyranny
 
 >Every modern brand wants to become part of the culture with or without appropriating it
