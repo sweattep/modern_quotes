@@ -14,6 +14,8 @@
 
 >Schools strove to instill thrift, competition, and a Protestant work ethic into Kanaka Maoli children while the children of American elites and missionaries attended private schools
 
+>For cultural materials that, broadly defined, belong in a library, the Internet Archive offers free storage, and free bandwidth, forever, for free. As a result, there are now millions of works available through the Archive and most are available only for “non commercial use” and “with attribution.”
+
 >But going from college to the NBA as a coach is way harder than doing it as a player
 
 >Moments of pleasure are merely gaps in the stream of pain.
