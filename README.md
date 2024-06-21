@@ -26,6 +26,8 @@
 
 >Moderate exercise is known to lower cortisol levels at night and reduce stress
 
+>If the lifestyle that you're living has you taking more shorts than getting props, then that lifestyle needs to stop
+>
 >Everything in the physical world is a race against two things: time and circumstances
 
 >tell me a story, and it will live in my heart forever.
