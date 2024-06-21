@@ -24,6 +24,8 @@
 
 >being forgotten is a function of time
 
+>Moderate exercise is known to lower cortisol levels at night and reduce stress
+
 >Everything in the physical world is a race against two things: time and circumstances
 
 >tell me a story, and it will live in my heart forever.
