@@ -249,7 +249,9 @@ sell the goods that are less popular
 
 >Jobs that put them in a leadership position are ideal for those who can bring people together or are natural mediators 
 
->The object of war is, quite simply, to force or encourage the enemy to make what you assert is a better choice, or to choose what you desire the enemy to choose.
+>The object of war is, quite simply, to force or encourage the enemy to make what you assert is a better choice
+
+>stop expecting loyalty from people who betray themselves, stop expecting honesty from people who lie to themselves, and stop expecting peace from people who are at war 
 
 >Nobody advocating for helping the poor actually wants anyone who's poor to be in power. 
 
