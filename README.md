@@ -1042,6 +1042,8 @@ sell the goods that are less popular
 
 >feeling unwell is just that: feeling unwell. To attach judgement without understanding is cruel and often wrong. If a woman is crying, is she therefore depressed? A yes answer is biased and unscientific. Finally and perhaps the most important piece? Individual instinct. I'd ask the individual (or self if it's me) what I think is happening. Statistically, patients are usually more accurate as to sources of discomfort or suffering.
 
+>Over Father's Day weekend, I experienced a health scare related to my heart. It was unexpected and served as a reminder of staying vigilant about our physical well-being, even when we are feeling fine.
+
 >Whatsit called, the thingamajig that flummoxed you last time we went to the pub, almost got into a brouhaha, and had to skedaddle when the young whippersnapper with the nincompoop friend thought they bamboozled the discombobulated security guard by hiding the stolen doohickey under your chair?
 
 >Encourage people, simplify, and leverage public property
