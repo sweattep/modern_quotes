@@ -2,6 +2,8 @@
 
 >I didn't need to go to school for this
 
+>We don’t have any contract. We’re just doing
+
 >there's no patience, there's no foresight, there's no vision and there's no leadership
 
 >Media applies pressure to law enforcement to dedicate more resources, and that’s what it takes. It takes all of us
