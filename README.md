@@ -2,7 +2,7 @@
 
 >I didn't need to go to school for this
 
->We don’t have any contract. We’re just doing
+>We don’t have any contract. We're just doing
 
 >there's no patience, there's no foresight, there's no vision and there's no leadership
 
@@ -694,6 +694,10 @@ sell the goods that are less popular
 >You can make a living trust to avoid probate for virtually any asset you own &mdash; real estate, bank accounts, vehicles, and so on. At your death, your successor trustee will be able to transfer it to the trust beneficiaries without probate court proceedings
 
 >congress appropriates military funds with alacrity and generosity. It appropriates poverty funds with miserlyness and grudging reluctance.
+
+>Menninger saw passive-aggressiveness as the leading disorder in the U.S. military 
+
+>absentee leader, the incompetent leader, the codependent leader, the passive-aggressive leader, the busybody leader, the paranoid leader, the rigid leader, the controller leader, the compulsive leader, the intemperate leader, the enforcer leader, the narcissistic leader, the callous leader, the street fighter leader, the corrupt leader, the insular leader, the bully leader, and the evil leader.
 
 >For example, the Copyright Office&mdash;which holds records of every copyright ever registered, including all those works which have passed into the public domain&mdash;could help catalogue the public domain and prevent it from being swept up by today's already overzealous automated filtering technologies
 
