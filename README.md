@@ -154,7 +154,9 @@
 
 >I have been told time and time again by my critics that my methods are rubbish because I am not following "best practices", but I contend that the truth is the complete opposite, that my methods are superior simply because I do NOT follow those practices because I have found practices which are demonstrably better. I develop database applications where the software structure is always synchronised with the database structure, so I don't need to waste time with any Object-Relational Mappers. Instead I use my Data Dictionary to construct both the table class file and the table structure file. If I ever change a table's structure all I need to do is to re-import that table's structure into my Data Dictionary and then re-export that structure to replace the table
 
->Incomplete or unclear requirements, a cryptic syntax used for some test applications—especially script-based test sets, variability in syntax or structure, and changing requirements are among the problems encountered in one tester. Such problems are common to all software but can be particularly problematic in test equipment software intended to test another product. Each of these issues increases the probability of error injection during test application development.
+>Incomplete or unclear requirements, a cryptic syntax used for some test applications—especially script-based test sets, variability in syntax or structure, and changing requirements are among the problems encountered in one tester.
+
+>Such problems are common to all software but can be particularly problematic in test equipment software intended to test another product. Each of these issues increases the probability of error injection during test application development.
 
 >Legal interpretation: the legal experts use the diff-text and the graphs of the user-interface for providing a legal interpretation. In this step we also refine the light-taxonomy adding legal meaning. The same error could have different meanings and semantics depending also on the topic, so the legal interpretation is a fundamental part of the research.
 
