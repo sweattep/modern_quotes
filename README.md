@@ -14,6 +14,8 @@
 
 >The Internet Archive is now leveraging a little known, and perhaps never used, provision of US copyright law, Section 108h, which allows libraries to scan and make available materials published 1923 to 1941 if they are not being actively sold.
 
+>Everything in the magazine was addressed to the African-American consumer. Johnson maintained that Ebony′s success was due to the positive image of African Americans that it offered.
+
 >If there were two me's, it might not be as loud in the locker room as it needs to be at times, and if there were two of him, nobody would know when to shut up. It's the perfect balance.
 
 >Schools strove to instill thrift, competition, and a Protestant work ethic into Kanaka Maoli children while the children of American elites and missionaries attended private schools
