@@ -1060,6 +1060,8 @@ sell the goods that are less popular
 
 >Whatsit called, the thingamajig that flummoxed you last time we went to the pub, almost got into a brouhaha, and had to skedaddle when the young whippersnapper with the nincompoop friend thought they bamboozled the discombobulated security guard by hiding the stolen doohickey under your chair?
 
+>"I produced the feature for a number of years getting a fee from Essence for my work," "Now [Essence] has stolen the list from me and taken it over without my permission or without compensating me." 
+
 >Encourage people, simplify, and leverage public property
 
 >If there were no connection between what happened in the past and what will happen in the future, we would be totally incapable of anticipating future events or thinking about the future at all.
