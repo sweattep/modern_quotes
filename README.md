@@ -8,6 +8,8 @@
 
 >Media applies pressure to law enforcement to dedicate more resources, and that’s what it takes. It takes all of us
 
+>But these are of earthly matters and thus of no spiritual importance.
+
 >imaginations have shrunk from Pan-Africanist visions of self-determination to citizenship
 
 >no man is thought worthy of a voice in politics unless he ignores or does not know nine-tenths of the most important relevant facts.
