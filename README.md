@@ -12,6 +12,8 @@
 
 >imaginations have shrunk from Pan-Africanist visions of self-determination to citizenship
 
+>the days and days I spent building my original website myself is time I will never get back. And the anguish and stress still give me nightmares.
+
 >no man is thought worthy of a voice in politics unless he ignores or does not know nine-tenths of the most important relevant facts.
 
 >The Internet Archive is now leveraging a little known, and perhaps never used, provision of US copyright law, Section 108h, which allows libraries to scan and make available materials published 1923 to 1941 if they are not being actively sold.
