@@ -559,6 +559,8 @@ sell the goods that are less popular
 
 >It's not a complex thing to do what's right. Look, if I love you as I love myself, I'm not suicidal. If I harm you, I've harmed myself because you are a part of me.
 
+>Lots of us manage to exist for years without ever sinning against society, but we sin against loveliness every hour of the day.
+
 >Stop trying to be liked by everybody. You don't even like every body.
 
 >Without sales the entire business model is an exercise in frustration
