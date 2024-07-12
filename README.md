@@ -541,7 +541,9 @@ sell the goods that are less popular
 
 >Workers, as sellers of their own labor, almost always faced monopsonistic exploitation from employers, the buyers of their labor
 
->We flatter our rich, connected, controlling members of the society by the language we currently use. This wasn’t always the case. In earlier times we used terms such as robber barons, monopolist, fat cat, or tory of industry. These words and phrases had a derogatory weight to them.
+>We flatter our rich, connected, controlling members of the society by the language we currently use. This wasn't always the case. In earlier times we used terms such as robber barons, monopolist, fat cat, or tory of industry. These words and phrases had a derogatory weight to them.
+
+>I weigh probably twice as much as them, and yet I balance it all on the same size feet and carry it on about the same size bones. I'm like if they had a whole other them to carry around at all times. Why would that not have an impact
 
 >Overcoming recidivism is not a matter of achieving external, social goals, but more so, one of freeing oneself from internal conditions that have been repressed and unconsciously driving the mind, emotions, and will. This must be understood.
 
