@@ -172,6 +172,8 @@
 
 >Our objective is to work on transforming her t-shirt side gig into a business, and teaching her to develop the discipline and know how to run a respectable and sustainable business.
 
+>if you do bidirectional sync you're pretty much asking for hell on earth because well if someone overwrites anything it'll get propagated to all orgs with no double check. IT. IS. HORRIBLE.
+
 >It's been hell. She doesn't follow my instructions, or doesn't understand them. She lacks skills I assumed someone who spends that much time texting on her phone would have. She misses deadlines, and lacks all kinds of discipline. She's experienced occasional success. Unfortunately, without an experienced, strict, and selfless mentor to knock the arrogance out of her ego when delusion hits, she eventually lost and missed the opportunities as they came and went.
 
 >Yoga has the potential to be a cost-effective treatment and prevention strategy
