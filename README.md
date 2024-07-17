@@ -80,6 +80,8 @@
 
 >Connect through powerful applications of bold monochromatic colour. Colour palettes that deliver real visceral impact generally have a dominant colour that dictates the overall look and feel.
 
+>The power of mathematical models lies in their capacity to inform, not replace, empirical evidence in science.
+
 >no matter who it is or how high the player is on the pole, he’s going to get on you from start to finish. It starts with the head
 
 >Instead of just picking the best option, I try to invent new ones.
