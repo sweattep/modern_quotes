@@ -265,6 +265,8 @@ sell the goods that are less popular
 
 >Jobs that put them in a leadership position are ideal for those who can bring people together or are natural mediators 
 
+>I love the game, but I don’t love the business. I'm at peace with the decision. I'm healthy and ready to start the next chapter of my life.
+
 >The object of war is, quite simply, to force or encourage the enemy to make what you assert is a better choice
 
 >stop expecting loyalty from people who betray themselves, stop expecting honesty from people who lie to themselves, and stop expecting peace from people who are at war 
