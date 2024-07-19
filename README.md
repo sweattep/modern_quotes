@@ -898,6 +898,8 @@ sell the goods that are less popular
 
 >By design, ChatGPT aspires to be the most mediocre web content you can imagine
 
+>So, he comes in the next day. Spits the whole thing over in one take…Two or three weeks later we're at the Garden and the entire arena knows the words.
+
 >I'd taken to calling myself a 'digital garbageman' for a time, because that's essentially what I was. I had some corp jobs, and it was mostly cleaning up other peoples' code. I said it tongue-in-cheek, but I did feel that way, and eventually left corporate work to hang out my own shingle.
 
 >tax systems designed to force the population into the labor market through debt
