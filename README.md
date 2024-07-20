@@ -413,6 +413,9 @@ sell the goods that are less popular
 
 >These were later collected and are very good, very precise in the way of an engineer with a poet's soul, which is yet another facet of Wolfe's work.
 
+>To become a poet is to step into the void
+
+
 >The functionality includes the rendering engine for the 2D and 3D graphics, the physics part of the program, including collision detection and response, sounds, animations, rendering, scripting, artificial intelligence, and memory management.
 
 >We don't advocate for particular policies or reforms
