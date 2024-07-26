@@ -901,6 +901,8 @@ sell the goods that are less popular
 
 >The goal is no longer, as it was in antiquity, to train people for careers as human beings, but to train them for careers as clerks or professors &emdash; that is to say, as specialists, theoreticians and retainers of specific items of more or less esoteric knowledge.
 
+>Only those who decline to scramble up the career ladder are interesting as human beings. Nothing is more boring than a man with a career.
+
 >Do not choose your future profession for money. Profession should be chosen like a wife-for love
 
 >When I was in the mortgage business, at the end of the year they would write me a big, fat check. I say keep your check.
