@@ -186,6 +186,8 @@
 
 >if you do bidirectional sync you're pretty much asking for hell on earth because well if someone overwrites anything it'll get propagated to all orgs with no double check. IT. IS. HORRIBLE.
 
+>an offline-first database that was embedded within the apps that their sales reps must use in the field, regardless of internet connectivity. Whenever an internet connection becomes available, all data is automatically synchronized across the organization’s edge infrastructure
+
 >It's been hell. She doesn't follow my instructions, or doesn't understand them. She lacks skills I assumed someone who spends that much time texting on her phone would have. She misses deadlines, and lacks all kinds of discipline. She's experienced occasional success. Unfortunately, without an experienced, strict, and selfless mentor to knock the arrogance out of her ego when delusion hits, she eventually lost and missed the opportunities as they came and went.
 
 >Yoga has the potential to be a cost-effective treatment and prevention strategy
