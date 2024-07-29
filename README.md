@@ -1202,5 +1202,6 @@ sell the goods that are less popular
 >we love only what we do not possess
 >we love only what we do not possess
 
-
 >Covert facilitation and escalation apply at many levels and go beyond efforts of formal societal control, They appear to be fundamental social processes inherent to contexts of strategic interaction and limited resources. At the primary group level, anyone who has connived to catch a child in an act of wrongdoing, offered leniency in return for good behavior, or punished the child by banishment to its room, only to have the room partly destroyed, is aware of this.
+
+>When my mother died, we had to choose from a photo album of coffins. I couldn't leave Apryl to bury me in one of them, so I made my own.
