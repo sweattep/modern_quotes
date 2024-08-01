@@ -4,6 +4,8 @@
 
 >We don't have any contract. We're just doing
 
+>coming off the way he was just moving. From that, I wasn’t comfortable around him
+
 >there's no patience, there's no foresight, there's no vision and there's no leadership
 
 >The fact that organized crime and the United States government have had some common enemies (Mussolini in Italy, and Castro in Cuba) has sometimes led to cooperation between them
