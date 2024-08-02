@@ -184,6 +184,8 @@
 
 >If someone asks whether two books are by the same author, Wikidata will answer that they are from the same author if the author is set in both cases as anonymous. If unknown value(Q24238356) would be used instead of anonymous (Q4233718), this problem wouldn't appear. To distinguish unknown (Q24238356), untraceable copyright owner (Q60711924), and anonymous (Q4233718), object has role (P3831) can be used to distinguish those. 
 
+Book people are the most honest people I've ever done business with.
+
 >What motivation is there to become the best at something when there is a clear ceiling on what is possible financially?
 
 >Our objective is to work on transforming her t-shirt side gig into a business, and teaching her to develop the discipline and know how to run a respectable and sustainable business.
