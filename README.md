@@ -190,6 +190,8 @@
 
 >Our objective is to work on transforming her t-shirt side gig into a business, and teaching her to develop the discipline and know how to run a respectable and sustainable business.
 
+>Evan and I looked at each other and said, 'We got a business!' We went on to make drum chips for all the popular drum machines and sold something like 60,000 drum chips at between 20 and 40 dollars a piece, which provided the fundingfor Digidesign.
+
 >if you do bidirectional sync you're pretty much asking for hell on earth because well if someone overwrites anything it'll get propagated to all orgs with no double check. IT. IS. HORRIBLE.
 
 >an offline-first database that was embedded within the apps that their sales reps must use in the field, regardless of internet connectivity. Whenever an internet connection becomes available, all data is automatically synchronized across the organization’s edge infrastructure
