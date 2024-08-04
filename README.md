@@ -2,6 +2,8 @@
 
 >I didn't need to go to school for this
 
+>I did not need special equipment. I'm a natural, a natural shooter.
+
 >We don't have any contract. We're just doing
 
 >coming off the way he was just moving. From that, I wasn’t comfortable around him
