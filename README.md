@@ -25,7 +25,9 @@
 >Because increasing data are showing how the duration of your sleep and the number of times you wake up at night potentially could be associated with poorer brain health and an increased risk of stroke or heart attack.
 
 >Do stuff. I didn't know what mine was, but I knew what didn’t feel right and I knew I wanted to feel right. Take chances and risks. Don’t be afraid and don't let the chattering of others outside of you keep you from doing what's in your heart, especially the thing that seems scary.
->
+
+>In Tupac’s transitional stage, he has communication, which has empowered, motivated and stimulated people all over this planet to fulfill their objectives and hold fast in times of despair to be strong enough to endure
+
 >Red meat consumption, particularly unprocessed red meat, has been associated with higher diverticulitis risk.
 
 >no man is thought worthy of a voice in politics unless he ignores or does not know nine-tenths of the most important relevant facts.
