@@ -14,6 +14,8 @@
 
 >Media applies pressure to law enforcement to dedicate more resources, and that’s what it takes. It takes all of us
 
+>It is intended that US, Inc. will be discreetly and appropriately advised of the time and locations of BPP activities in order that the two organizations might be brought together
+
 >But these are of earthly matters and thus of no spiritual importance.
 
 >imaginations have shrunk from Pan-Africanist visions of self-determination to citizenship
