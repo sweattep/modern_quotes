@@ -1144,7 +1144,9 @@ sell the goods that are less popular
 >your body can only digest and absorb so much protein at a time
 
 >A key component to sustainable exercise adherence is finding activities that you truly enjoy
- 
+
+>Someone points out new rules make it too easy to cancel people over nothing, gets cancelled, seemingly, over this compliant
+
 >Be explicit in code about the data retention, data structure, and data schema for each and every data point. A name and location for these details should be chosen which is persistent, consistent, and resistant to change, such as a pinboard, collaboration tool, or content management system of your choice. In addition, a Venn Diagram within the document can encapsulate both the relationships between data points and owners, as well as the relationships between owners and policies.
 
 >A shared email address and shared calendar can be a better way to manage your team's schedule compared to ad hoc communication. Team members can then be informed ahead of time about important dates  and messages without putting too much burden on individuals to remember everything.
