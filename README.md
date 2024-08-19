@@ -682,6 +682,8 @@ sell the goods that are less popular
 
 >Personal guarantees can wipe you out
 
+>Actual speeds vary and are not guaranteed. Many factors affect speed, including equipment performance, interference, congestion, and speeds of visited websites. WiFi speeds affected by additional factors, including distance from Gateway, home configuration, personal device capabilities, and others. Faster upload speeds only available in upgraded areas but may not be available for certain customers, who will be notified.
+
 >The idea was to make writing simple web pages, and especially weblog entries, as easy as writing an email
 
 >Pick a product, any product on your desk. Introduce the product. Tell all the problems relating to the product. Tell how the product solves all those problems. Tell the customer where he or she can buy it and how much it costs.
