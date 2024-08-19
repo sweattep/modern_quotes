@@ -44,6 +44,8 @@
 
 >They're going to pick on you because they know the only way to neutralize you is to get you in foul trouble and get you tired.
 
+>You're tired and boring
+
 >But going from college to the NBA as a coach is way harder than doing it as a player
 
 >Moments of pleasure are merely gaps in the stream of pain.
