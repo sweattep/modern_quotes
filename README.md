@@ -30,6 +30,8 @@
 
 >Red meat consumption, particularly unprocessed red meat, has been associated with higher diverticulitis risk.
 
+>the need to diversify the staff, its programming, its story selection and its audiences to better reflect American life
+
 >no man is thought worthy of a voice in politics unless he ignores or does not know nine-tenths of the most important relevant facts.
 
 >The Internet Archive is now leveraging a little known, and perhaps never used, provision of US copyright law, Section 108h, which allows libraries to scan and make available materials published 1923 to 1941 if they are not being actively sold.
