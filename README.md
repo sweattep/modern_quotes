@@ -929,6 +929,8 @@ sell the goods that are less popular
 
 >Do not choose your future profession for money. Profession should be chosen like a wife-for love
 
+>So learn from the past and work for the future/And don't be a slave to no computer
+
 >When I was in the mortgage business, at the end of the year they would write me a big, fat check. I say keep your check.
 
 >I doubt everyone, even those who are supposed to protect us
