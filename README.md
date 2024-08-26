@@ -1001,6 +1001,8 @@ sell the goods that are less popular
 
 >Unconsciously, people feel someone is a good culture fit when they have the interview and decide if they would work with you or not.
 
+>Madison, Alexander Hamilton, and others infused the constitutional order with veto points precisely to contain the central political tool that poorer citizens had to pursue their needs: the power of the vote.
+
 >buying distressed financial stocks in February and March ( including Bank of America at $3 ), and then profiting from their recovery that year
 
 >It is given to a fortunate few to be born at the right time, in the right place, with the right talents.
