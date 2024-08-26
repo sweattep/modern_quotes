@@ -1239,6 +1239,10 @@ sell the goods that are less popular
 >we love only what we do not possess
 >we love only what we do not possess
 
+>I talked about defensive programming and how SGML and XML free us from it or at least reduce the burden, but of course defensive programming is not made necessary solely by errors; sometimes what we have to defend against is just the sheer complexity of our situation. And dealing with foreign systems adds to the complexity. Dealing with interactive systems, interrupts, and asynchronous systems adds more complexity.
+
+>Fortunately, those of us who rely on the XML stack have a secret — or not so secret — weapon in our struggles to deal with that particular kind of complexity: his name is Michael Kay.
+
 >Covert facilitation and escalation apply at many levels and go beyond efforts of formal societal control, They appear to be fundamental social processes inherent to contexts of strategic interaction and limited resources. At the primary group level, anyone who has connived to catch a child in an act of wrongdoing, offered leniency in return for good behavior, or punished the child by banishment to its room, only to have the room partly destroyed, is aware of this.
 
 >What you really have to judge is the timing and the chance to succeed. Sometimes if they don't succeed, it destroys them. So I think you just have to see what you’re dealing with personally. What kind of temperament he seems to have. How does he respond to negative play situations or hard coaching?
