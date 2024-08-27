@@ -2,6 +2,8 @@
 
 >I didn't need to go to school for this
 
+>private, unincorporated, and family-based
+
 >I did not need special equipment. I'm a natural, a natural shooter.
 
 >one of the first to put together a song that was all vocals
