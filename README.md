@@ -349,6 +349,8 @@ sell the goods that are less popular
 
 >Math is the opposite of learning by example
 
+>The opposite of love is indifference
+
 >The best professional wrestling needs to pretend to be real, when it stops pretending to be real, which is all of what they're doing today, it's ridiculous.
 
 >he who listens not to a few words of wisdom, will never listen, even unto a multitude
