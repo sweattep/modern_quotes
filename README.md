@@ -8,6 +8,8 @@
 
 >I did not need special equipment. I'm a natural, a natural shooter.
 
+>Brother, I just wanted to let you know I just made a hole-in-one
+
 >one of the first to put together a song that was all vocals
 
 >We don't have any contract. We're just doing
