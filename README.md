@@ -16,7 +16,7 @@
 
 >I don't have anybody that I will let do it to actually do it right.
 
->coming off the way he was just moving. From that, I wasn’t comfortable around him
+>coming off the way he was just moving. From that, I wasn't comfortable around him
 
 >there's no patience, there's no foresight, there's no vision and there's no leadership
 
