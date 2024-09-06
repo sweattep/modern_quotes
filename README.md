@@ -528,6 +528,8 @@ sell the goods that are less popular
 
 >The Gods we worship write their names on our faces; be sure of that. And a man will worship something
 
+>RoR uses what is termed as "convention over configuration", which means that instead of having to build a mass of configuration files which identify the structure of your database, by using certain naming conventions the framework is able to deduce the structure for itself. Unfortunately I find that these naming conventions are far too restrictive, and I am not alone. These restrictions mean that existing databases which have not been built using these conventions, which covers 99.99% of all databases, will not work with RoR, at least not without jumping through a lot of hoops. You have to know what the RoR conventions are, realise that your database does not conform to these conventions, then hunt for ways to tell the framework "don't do that, do this".
+
 >The best way to get the right answer on the internet is not to ask a question; it's to post the wrong answer.
 
 >If you receive a bribe, include it in your income.
