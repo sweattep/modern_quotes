@@ -1149,6 +1149,8 @@ sell the goods that are less popular
 
 >Numerous instances were identified during the scope period of the audit where vendors were created/changed and then subsequently paid by the same employee
 
+>One solution that's been bandied about is to make shorter games. I've personally advocated for the need of more half-sequels
+
 >Accessibility for all devices and for all humans no matter what or where. Relevant content connecting to other relevant content. Searchable. Meaningful. OPEN!
 
 >as in most early applications of LLMs, the systems are primarily viewed by executives as a quick and easy way to cut costs and automate systems already rife with problems, frustrated consumers, and underpaid and overtaxed support employees.
