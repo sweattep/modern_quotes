@@ -550,6 +550,8 @@ sell the goods that are less popular
 
 >the most class conscious of the race
 
+>Slavery was not born of racism, rather racism was the consequence of slavery.
+
 >It must be acknowledged that our worker emerges from the process of production looking different from when he entered it.
 
 >Formerly the master selected the slave; today the slave selects his master
