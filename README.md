@@ -6,6 +6,8 @@
 
 >They will be replaced with an enterprise sales staff to target potential new clients, as well as developers focused on business-to-business software products
 
+>I could pick 22 of us right now and go out and play better than these guys. We’d be in this game.
+
 >I didn't need to go to school for this
 
 >private, unincorporated, and family-based
