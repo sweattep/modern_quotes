@@ -700,6 +700,8 @@ sell the goods that are less popular
 
 >We need to understand that we are kings and queens
 
+>Exercise is your king, and nutrition is your queen. Together they create your fitness kingdom.
+
 >Organisations often produce web sites with a content and structure which mirrors the internal concerns of the organisation rather than the needs of the users of the site
 
 >You can't live your life and then end up in a predicament and blame that on anybody else. You got to stand on what you put out there
