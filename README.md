@@ -1,5 +1,7 @@
 >if i had a job before the dawn of the internet, the typewriter, and the calculator, what would it be?
 
+>the amount of time he spent stretching, and strengthening, and band work, and massage
+
 >Whatever we are as humans is now manifest in the Web: Our beauty, hatred, fragility, and ferocity; our kindness, cruelty, confusion, and clarity. Our wars. Our peace
 
 >I treat everybody fair. I don't treat everybody the same.
