@@ -6,6 +6,8 @@
 
 >I treat everybody fair. I don't treat everybody the same.
 
+>culturally, historically, or aesthetically important, and/or inform or reflect life in the United States
+
 >They will be replaced with an enterprise sales staff to target potential new clients, as well as developers focused on business-to-business software products
 
 >transition from a traditional IT model to a tech organization
