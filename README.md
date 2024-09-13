@@ -12,6 +12,8 @@
 
 >transition from a traditional IT model to a tech organization
 
+>Tasked with performing the duties befitting an entire team and with a laughable salary for the amount of work I was responsible for, I worked myself to the bone at this job. And it was psychologically destructive.
+
 >I could pick 22 of us right now and go out and play better than these guys. We’d be in this game.
 
 >I didn't need to go to school for this
