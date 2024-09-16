@@ -351,6 +351,8 @@ sell the goods that are less popular
 
 >It left us free, but it also left us homeless, penniless, ignorant, nameless and friendless.
 
+>to be ignorant of one's ignorance is the malady of the ignorant
+
 >Muscles build and recover during periods of rest
 
 >stop explaining yourself to fools
