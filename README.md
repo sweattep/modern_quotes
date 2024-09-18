@@ -16,6 +16,10 @@
 
 >keep the numbers low, but the quality high
 
+>The travel is brutal. It’s very, very brutal
+
+>Up until then, I had no quote. I was getting paid pennies to do movies.
+
 >Tasked with performing the duties befitting an entire team and with a laughable salary for the amount of work I was responsible for, I worked myself to the bone at this job. And it was psychologically destructive.
 
 >I could pick 22 of us right now and go out and play better than these guys. We’d be in this game.
