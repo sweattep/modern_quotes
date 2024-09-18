@@ -292,6 +292,8 @@ sell the goods that are less popular
 
 >A mere four seconds of intense intervals (training), repeated until they amount to about a minute of total exertion, lead to rapid and meaningful improvements in strength, fitness and general physical performance among middle-aged and older adults
 
+>Lee could land a punch in around 5 hundredths of a second
+
 >When we spoke, he was having it rate another chatbot's responses according to seven different criteria, one AI training the other.
 
 >He collected the interviews, he realized he had a book on his hands, and spent the next few months selling it
