@@ -2,6 +2,8 @@
 
 >the amount of time he spent stretching, and strengthening, and band work, and massage
 
+>Building a portal that contains instructions on portal building
+
 >Whatever we are as humans is now manifest in the Web: Our beauty, hatred, fragility, and ferocity; our kindness, cruelty, confusion, and clarity. Our wars. Our peace
 
 >I treat everybody fair. I don't treat everybody the same.
