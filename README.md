@@ -6,6 +6,8 @@
 
 >Whatever we are as humans is now manifest in the Web: Our beauty, hatred, fragility, and ferocity; our kindness, cruelty, confusion, and clarity. Our wars. Our peace
 
+>Automating everything results in generic content, which isn't helpful
+
 >I treat everybody fair. I don't treat everybody the same.
 
 >He actively stood in the middle of Pac and Biggie squashing shit. Pac wrote Biggie a letter in the summer of 1996. Puffy blocked it. Biggie wanted to squash it. Puffy told him not to. Even after he got Pac killed, Biggie wanted to leave Bad Boy. Those two dying changed the direction of where the game went after tha
