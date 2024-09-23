@@ -6,6 +6,8 @@
 
 >Whatever we are as humans is now manifest in the Web: Our beauty, hatred, fragility, and ferocity; our kindness, cruelty, confusion, and clarity. Our wars. Our peace
 
+>Additionally, context-based understanding of cultural references, idioms, and nuanced expressions can be difficult for AI
+
 >Automating everything results in generic content, which isn't helpful
 
 >I treat everybody fair. I don't treat everybody the same.
