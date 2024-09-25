@@ -14,6 +14,8 @@
 
 >I treat everybody fair. I don't treat everybody the same.
 
+>His only true accomplishment has been being born to wealthy and successful parents.
+
 >He actively stood in the middle of Pac and Biggie squashing shit. Pac wrote Biggie a letter in the summer of 1996. Puffy blocked it. Biggie wanted to squash it. Puffy told him not to. Even after he got Pac killed, Biggie wanted to leave Bad Boy. Those two dying changed the direction of where the game went after tha
 
 >culturally, historically, or aesthetically important, and/or inform or reflect life in the United States
