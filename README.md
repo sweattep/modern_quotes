@@ -236,6 +236,8 @@
 
 >Incomplete or unclear requirements, a cryptic syntax used for some test applications—especially script-based test sets, variability in syntax or structure, and changing requirements are among the problems encountered in one tester.
 
+>boards of directors are basically elite. They represent the wealthiest and most highly paid professionals in the country. And they rarely have, as board members, people who are teachers
+
 >Such problems are common to all software but can be particularly problematic in test equipment software intended to test another product. Each of these issues increases the probability of error injection during test application development.
 
 >Legal interpretation: the legal experts use the diff-text and the graphs of the user-interface for providing a legal interpretation. In this step we also refine the light-taxonomy adding legal meaning. The same error could have different meanings and semantics depending also on the topic, so the legal interpretation is a fundamental part of the research.
