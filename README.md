@@ -16,6 +16,8 @@
 
 >Additionally, context-based understanding of cultural references, idioms, and nuanced expressions can be difficult for AI
 
+>I've always known that I've been more than this face and more than this body
+
 >Automating everything results in generic content, which isn't helpful
 
 >I treat everybody fair. I don't treat everybody the same.
