@@ -6,6 +6,8 @@
 
 >the NCAA prohibits players from accepting NIL money from sportsbooks or casinos
 
+>I wanted to be remembered for blocking shots
+
 >16,000 points, 8,000 assists and 1,500 steals without being selected or named to an All-Star team
 
 >He hired a really good team that put together a lot of good work for us
