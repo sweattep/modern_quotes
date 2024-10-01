@@ -429,6 +429,18 @@ sell the goods that are less popular
 
 >Put pressure on that ham!
 
+>And when my wife, late wife, said I could do whatever I wanted to do and she would
+support it, I did not get into that business, computer business any longer.
+
+>Jack Wheatley became mayor. And I talked to Jack Wheatley. He encouraged me to run for city
+council. And now, there were no African Americans anywhere in government. And the Mormon Church,
+Jack Wheatley got the Mormon Church to support me. I was made city councilman by the Mormon Church
+
+>we started work enough time-- between nine and noon. But you'd work 40 hours, but you'd come when it
+was convenient. And then do what you had to do, and work for 40 hours, and nobody ever worked less
+than 40 hours. When Bill Hewlett heard that I had hired Bill Hewlett's son, and he told his daddy what I'd
+done.
+
 >learned how to think ahead so i fight with my pen
 
 >banks are by definition insolvent in a fractional reserve system
