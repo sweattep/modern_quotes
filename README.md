@@ -1317,6 +1317,10 @@ sell the goods that are less popular
 
 >Covert facilitation and escalation apply at many levels and go beyond efforts of formal societal control, They appear to be fundamental social processes inherent to contexts of strategic interaction and limited resources. At the primary group level, anyone who has connived to catch a child in an act of wrongdoing, offered leniency in return for good behavior, or punished the child by banishment to its room, only to have the room partly destroyed, is aware of this.
 
+>RAG is a pretencious acronym that means "I am using the LLM as a NLP tool, not as a AGI oracle"
+
+>agentic LLMs is a pretencious term that means: "I am using LLM as a NLP tool module incorporated into a wider system of other tools assembled by intelligent humans to solve a task"
+
 >What you really have to judge is the timing and the chance to succeed. Sometimes if they don't succeed, it destroys them. So I think you just have to see what you’re dealing with personally. What kind of temperament he seems to have. How does he respond to negative play situations or hard coaching?
 
 >When my mother died, we had to choose from a photo album of coffins. I couldn't leave Apryl to bury me in one of them, so I made my own.
