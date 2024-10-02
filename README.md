@@ -6,6 +6,8 @@
 
 >Building a portal that contains instructions on portal building
 
+>Don't get so ambitious about what you want to do that you never learn the fundamentals of the game
+
 >the NCAA prohibits players from accepting NIL money from sportsbooks or casinos
 
 >I wanted to be remembered for blocking shots
