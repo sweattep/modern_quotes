@@ -2,6 +2,8 @@
 
 >the amount of time he spent stretching, and strengthening, and band work, and massage
 
+>It was something I set out to do as a teen, and I finally had the confidence in my late 40s to do it.
+
 >Building a portal that contains instructions on portal building
 
 >the NCAA prohibits players from accepting NIL money from sportsbooks or casinos
