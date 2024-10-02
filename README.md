@@ -16,6 +16,8 @@
 
 >He built the best family he could, then built a career around that. I would absolutely like to see his book in school libraries and curriculums.
 
+>In 1971, Kleiner Perkins Caufield & Byers then employed Roy Clay as its consultant for prospective investments in computer technology start-ups, three of which eventually reached a combined valuation of $135 billion dollars: Tandem Computers ($3B), Compaq ($22B), and Intel ($110B).
+
 >Additionally, context-based understanding of cultural references, idioms, and nuanced expressions can be difficult for AI
 
 >I've always known that I've been more than this face and more than this body
