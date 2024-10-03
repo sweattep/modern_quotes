@@ -12,6 +12,8 @@
 
 >Building a portal that contains instructions on portal building
 
+>The more different the color of the plate from the color of the food that's on it, the less you'll serve yourself.
+
 >Don't get so ambitious about what you want to do that you never learn the fundamentals of the game
 
 >the NCAA prohibits players from accepting NIL money from sportsbooks or casinos
