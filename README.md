@@ -1,5 +1,11 @@
 >if i had a job before the dawn of the internet, the typewriter, and the calculator, what would it be?
 
+>you must be educated, no matter what the discipline
+
+>everything is related to everything else
+
+>the more you know, the more you accumulate
+
 >the amount of time he spent stretching, and strengthening, and band work, and massage
 
 >It was something I set out to do as a teen, and I finally had the confidence in my late 40s to do it.
