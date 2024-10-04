@@ -6,6 +6,8 @@
 
 >the more you know, the more you accumulate
 
+>the difference between passing a test and knowing it's right
+
 >the amount of time he spent stretching, and strengthening, and band work, and massage
 
 >It was something I set out to do as a teen, and I finally had the confidence in my late 40s to do it.
