@@ -2,6 +2,8 @@
 
 >you must be educated, no matter what the discipline
 
+>working isn't a problem, but everybody needs to be rejuvenated. You don't get that time now
+
 >everything is related to everything else
 
 >the more you know, the more you accumulate
