@@ -8,6 +8,8 @@
 
 >the more you know, the more you accumulate
 
+>If the song was created more than 120 years ago and the author is unknown, it is likely in the public domain
+
 >the difference between passing a test and knowing it's right
 
 >the amount of time he spent stretching, and strengthening, and band work, and massage
