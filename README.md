@@ -979,6 +979,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Creating the unittests for the software has no direct business value. These tasks are often delayed for a next sprint (which is... never). Therefore, striving towards an MVP is ignored, and the definition of done is compromised instead.
 
+>Print pages to PDF allows you to convert selected bookmarks
+
 >What's your alma mater? Books
 
 >The creating individual is always more important than any established style or system
