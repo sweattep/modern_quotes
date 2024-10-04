@@ -1184,6 +1184,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Down here in the real world we do not call something wrong unless it causes a problem.
 
+>Realize that the building will not collapse if you are not there, and have some casual conversation about doing knowledge transfer with your coworkers as well as your manager so that you are not suffering in silence.
+
 >The bulk of this money went to Steam/Xbox/Playstation/Nintendo storefronts
 
 >By March 2022, Tears of the Kingdom was essentially complete, but Nintendo delayed it for a year to refine it.
@@ -1371,3 +1373,7 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 >What you really have to judge is the timing and the chance to succeed. Sometimes if they don't succeed, it destroys them. So I think you just have to see what you’re dealing with personally. What kind of temperament he seems to have. How does he respond to negative play situations or hard coaching?
 
 >When my mother died, we had to choose from a photo album of coffins. I couldn't leave Apryl to bury me in one of them, so I made my own.
+
+>I accepted a job which was advertised as a full-time position on a team which turned out to be part-time position working only with the manager. In my first week, the hiring manager stopped me in the hall one afternoon and asked why I was still there.
+
+>Being confident that the candidate is moving in a direction of strength and brings something lacking to the team is best for building a strong organization.
