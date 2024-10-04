@@ -16,6 +16,10 @@
 
 >Linda Johnson Rice left the Board after her concerns
 
+>tell good stories and share a good laugh about legacy technologies
+
+>ask questions that only come from experience, such as 'tell me your worst day ever at your last job'?
+
 >Building a portal that contains instructions on portal building
 
 >The more different the color of the plate from the color of the food that's on it, the less you'll serve yourself.
