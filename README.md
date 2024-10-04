@@ -12,6 +12,8 @@
 
 >It was something I set out to do as a teen, and I finally had the confidence in my late 40s to do it.
 
+>Linda Johnson Rice left the Board after her concerns
+
 >Building a portal that contains instructions on portal building
 
 >The more different the color of the plate from the color of the food that's on it, the less you'll serve yourself.
