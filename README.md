@@ -10,6 +10,8 @@
 
 >If the song was created more than 120 years ago and the author is unknown, it is likely in the public domain
 
+>there's no app for deep learning
+
 >the difference between passing a test and knowing it's right
 
 >the amount of time he spent stretching, and strengthening, and band work, and massage
