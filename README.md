@@ -18,6 +18,8 @@
 
 >The resistance to collaborate can sabotage a project.
 
+>it's never ok to disable submit buttons
+
 >Use the Socratic Method to move the conversation from the realm of opinions to the realm of facts.
 
 >there's no app for deep learning
