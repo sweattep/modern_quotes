@@ -16,6 +16,10 @@
 
 >If the song was created more than 120 years ago and the author is unknown, it is likely in the public domain
 
+>The resistance to collaborate can sabotage a project.
+
+>Use the Socratic Method to move the conversation from the realm of opinions to the realm of facts.
+
 >there's no app for deep learning
 
 >the difference between passing a test and knowing it's right
