@@ -1194,11 +1194,15 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >A free man, yet penniless and homeless. A man of toil, but one whose own and whose ancestral toil had created a material and social grandeur which now mocked at his poverty and arrogantly denied him a share in its blessings. A free man, but ignorant, the greatest curse imposed by his former status which had contributed to the enlightenment of others. A freeman, but helpless in the face of an impending persecution. He, whose labor had contributed to the comfort and social happiness of others
 
+>Generating unit tests by using the Reflection API, specifically the ownKeys method, will facilitate the creation of API-first tests which are decoupled from a specific version of either Jasmine or React.
+
 >the company was encouraging wellness and staying home until review periods where raises were withheld, insurance was not maintained even though the company had widely promoted that it would be, and additional hazard pay was taken away a month after being instated
 
 >We pump constant confidence into everybody, and we go out there and hoop
 
 >They survived by keeping aloof from the others. Admixture of blood made little difference, since what kept them together was something ideal&mdash;thepossession they had in common of certain intellectual and emotional values.
+
+>Decouple the test framework from the application framework through the use of a wrapper based API. This will allow you to upgrade to new or different application frameworks without having to rewrite all your tests. Instead, you simply need to write a new set of wrappers for the new API, while the underlying assertions remain the same.
 
 >obesity was not associated with health insurance among Black and Asian
 
