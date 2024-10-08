@@ -864,6 +864,8 @@ done.
 
 >Most family corporations have rules that dictate a stipulated time period that a young family member has to work elsewhere to gain experience before returning.
 
+>Grow your network offline, then follow up online as people reach out. Volunteer for community events such as local cleanup, festivals, or recreational activities. Put business cards on bulletin boards at your local community center, leave flyers at your local gym, donate bookmarks to your local library, etc, etc.
+
 >Hip-Hop is a word of mouth, street culture. That’s what it is. It’s not a technology culture
 
 >targeted application developers with self-service offerings as a `foot in the door` to larger enterprise accounts.
