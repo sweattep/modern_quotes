@@ -26,6 +26,8 @@
 
 >the difference between passing a test and knowing it's right
 
+>There is a wide range of opportunity within the core regression space. In order to consider all the possibilities, interview people from various walks of life to redefine ways to become more innovative and responsive to the needs of the individual.
+
 >the amount of time he spent stretching, and strengthening, and band work, and massage
 
 >It was something I set out to do as a teen, and I finally had the confidence in my late 40s to do it.
