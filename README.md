@@ -895,7 +895,11 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Copyright law does not protect the titles of books or movies, nor does it protect short phrases
 
+>Differentiate between talent and skill to determine what you can learn and what you cannot. For example, communication is a skill, but photographic memory is not.
+
 >Currently, there is lack of economical incentive given that available processes used in recycling batteries to reclaim metals require 6-10 times more energy than extracting/refining those metals from ores.
+
+>Take advantage of the fact that social media and technology are both ephemeral by design, and invest your resources in timeless aspects of business such as the concept of the long tail.
 
 >The exclusive and discriminating practices of the companies serving the national market created a protected environment
 
