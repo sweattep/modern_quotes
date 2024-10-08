@@ -786,9 +786,13 @@ done.
 
 > There is a window of opportunity for teaching and learning; the task is to know when it appears and exploit it.
 
+>Decouple the test framework from the application framework through the use of a wrapper based API. This will allow you to upgrade to new or different application frameworks without having to rewrite all your tests. Instead, you simply need to write a new set of wrappers for the new API, while the underlying assertions remain the same.
+
 >This is one scenario that scientists foresee for SARS-CoV-2. The virus sticks around, but once people develop some immunity to it — either through natural infection or vaccination — they won't come down with severe symptoms.
 
 >All laws are selective to some extent, but categories of selection are of paramount concern when a law has the incidental effect of burdening religious practice
+
+>Taking advantage of first-class functions and implementing the pipes-and-filters architecture can facilitate the design process. Using inline assertions rather than a testing framework will also greatly simplify the testing process, which will encourage experimentation.
 
 >Proponents of the criminal policy of herd immunity have seized on Singapore as an example to push for "opening up" and "living with Covid" once high vaccination rates have been achieved
 
