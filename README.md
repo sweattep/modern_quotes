@@ -975,6 +975,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >we can tell a story within a story a lot of times, not because you came up with it the night before or before the match or while you were talking about spots, but it happens organically
 
+>Metaprogramming allows you to generate language level analysis and interpretation features such as parsers, lexers, and abstract syntax trees. Be sure to benchmark any user defined functions which use metaprogramming features to ensure there are clear performance expectations and limits defined before releasing them.
+
 >I always believe that the easy way is the right way
 
 >Make your own shows with private funding and get them out there asap and everywhere you can
