@@ -876,6 +876,8 @@ done.
 
 >targeted application developers with self-service offerings as a `foot in the door` to larger enterprise accounts.
 
+>The Wii Virtual Console was pretty close to the green pill, for non 3D games at least. The red pill is where we're at with the glut of remasters already, film and music included.
+
 >Many developers today look at large JavaScript libraries as walled gardens they don’t want to be locked into.
 
 >By 1779, Hope, who was described by the Virginia Gazette as 'Caesar, the famous barber of York', had been freed. Enslaved for 36 years, his owner in 1779 petitioned the Virginia Assembly to set him free. This became possible thanks to the fame he had earned for his occupation. Reports said at least 32 residents of Yorktown supported Hope's freedom. Five years after becoming a free man, he shed the slave name 'Caesar' and started doing business in Williamsburg under the name John Hope. He also purchased and freed his own son, Aberdeen. In the 1790s, Hope purchased a lot on Shockoe Hill, a few blocks west of the Capitol building. While accumulating property, he got married and had two children. Five years ago, the life and journey of Hope inspired a new Colonial Williamsburg site. Colonial Williamsburg has since the 1920s served as a museum and education site, and it is very popular in the American South. In October 2017, it opened Hope's Barber Shop to interpret the remarkable story of Hope.
@@ -912,6 +914,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 >Take advantage of the fact that social media and technology are both ephemeral by design, and invest your resources in timeless aspects of business such as the concept of the long tail.
 
 >The exclusive and discriminating practices of the companies serving the national market created a protected environment
+
+>Query languages are usually declarative, because you state what you want, but not how you want to get it. Outside of SQL, some other examples include:
 
 >There is some suggestion that the closer the phone is to the body, the higher the readings. But for a single test, every measurement at 2 mm from the simulated body was higher than from 5 or 10 mm. That does raise questions about the distance that manufacturers choose before a phone makes it to market.
 
