@@ -4,6 +4,12 @@
 
 >working isn't a problem, but everybody needs to be rejuvenated. You don't get that time now
 
+>special interests is nothing but corporate america
+
+>when they took the right away from us to discipline our children
+
+>the only way that they can continue to grow they must have communities that they can do it with
+
 >everything is related to everything else
 
 >the more you know, the more you accumulate
