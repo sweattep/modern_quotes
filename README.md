@@ -876,6 +876,8 @@ done.
 
 >Grow your network offline, then follow up online as people reach out. Volunteer for community events such as local cleanup, festivals, or recreational activities. Put business cards on bulletin boards at your local community center, leave flyers at your local gym, donate bookmarks to your local library, etc, etc.
 
+>Interactive documentation which accepts feedback via form submission is the best way to avoid losing context. Placing contextual help links within the documentation, and adding a link to the feedback form within each, would be an easy way to accomplish this.
+
 >Hip-Hop is a word of mouth, street culture. That’s what it is. It’s not a technology culture
 
 >targeted application developers with self-service offerings as a `foot in the door` to larger enterprise accounts.
