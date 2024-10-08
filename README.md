@@ -22,6 +22,8 @@
 
 >there's no app for deep learning
 
+>Some examples of risks include: "models learning from biased data may reproduce and continue historical biases", "training data may underrepresent outlier populations" and "data collection may not include representation from individuals with disabilities"
+
 >the difference between passing a test and knowing it's right
 
 >the amount of time he spent stretching, and strengthening, and band work, and massage
