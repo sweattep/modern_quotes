@@ -1,5 +1,8 @@
 >if i had a job before the dawn of the internet, the typewriter, and the calculator, what would it be?
 
+>=i don't write code on the weekends
+>=
+
 >you must be educated, no matter what the discipline
 
 >working isn't a problem, but everybody needs to be rejuvenated. You don't get that time now
