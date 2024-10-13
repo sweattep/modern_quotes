@@ -1,4 +1,4 @@
->>=if i had a job before the dawn of the internet, the typewriter, and the calculator, what would it be?
+>>if i had a job before the dawn of the internet, the typewriter, and the calculator, what would it be?
 >>=
 
 >you must be educated, no matter what the discipline
@@ -1433,5 +1433,5 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Being confident that the candidate is moving in a direction of strength and brings something lacking to the team is best for building a strong organization.
 
->>=i don't write code on the weekends
+>>i don't write code on the weekends
 >>=
