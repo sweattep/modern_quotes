@@ -1,9 +1,8 @@
 >if i had a job before the dawn of the internet, the typewriter, and the calculator, what would it be?
 
->=i don't write code on the weekends
->=
-
 >you must be educated, no matter what the discipline
+
+>There was no field. I just wanted to learn how to do something well.
 
 >working isn't a problem, but everybody needs to be rejuvenated. You don't get that time now
 
@@ -1432,3 +1431,5 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 >I accepted a job which was advertised as a full-time position on a team which turned out to be part-time position working only with the manager. In my first week, the hiring manager stopped me in the hall one afternoon and asked why I was still there.
 
 >Being confident that the candidate is moving in a direction of strength and brings something lacking to the team is best for building a strong organization.
+
+>>=i don't write code on the weekends
