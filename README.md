@@ -3,6 +3,8 @@
 
 >you must be educated, no matter what the discipline
 
+>his identity is Jewish and Mediterranean
+
 >There was no field. I just wanted to learn how to do something well.
 
 >working isn't a problem, but everybody needs to be rejuvenated. You don't get that time now
