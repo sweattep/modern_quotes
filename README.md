@@ -21,6 +21,8 @@
 
 >If the song was created more than 120 years ago and the author is unknown, it is likely in the public domain
 
+>made a living out of cuss words
+
 >The resistance to collaborate can sabotage a project.
 
 >it's never ok to disable submit buttons
