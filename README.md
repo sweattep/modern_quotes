@@ -21,6 +21,8 @@
 
 >If the song was created more than 120 years ago and the author is unknown, it is likely in the public domain
 
+>And he carried to his grave a feeling that Asian Americans were discriminated against also.
+
 >made a living out of cuss words
 
 >The resistance to collaborate can sabotage a project.
