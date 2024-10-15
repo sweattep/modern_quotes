@@ -1360,6 +1360,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Just a few good questions about a program, and careful parsing of the answers, can clarify how well each of these elements is designed and aligns with the others — and lead to significantly better decisions
 
+>Nobody cared about what I did or what African Americans did.
+
 >If something is important enough to merit significant investment, it's also likely to be complicated enough that efficacy must be prioritized over ease.
 
 >There was no diversity and almost no accuracy among the characters of color at all.
