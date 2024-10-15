@@ -15,6 +15,8 @@
 
 >the only way that they can continue to grow they must have communities that they can do it with
 
+>No, but she, for whatever reason knew of me long before we met. And she wanted to meet me. And when we met, we were both engaged
+
 >everything is related to everything else
 
 >the more you know, the more you accumulate
