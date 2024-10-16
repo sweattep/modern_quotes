@@ -9,6 +9,8 @@
 
 >working isn't a problem, but everybody needs to be rejuvenated. You don't get that time now
 
+>I took a look at your resume and think we should start with a phone conversation.
+
 >special interests is nothing but corporate america
 
 >when they took the right away from us to discipline our children
