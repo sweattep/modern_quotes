@@ -21,6 +21,8 @@
 
 >No, but she, for whatever reason knew of me long before we met. And she wanted to meet me. And when we met, we were both engaged
 
+>But once integration came, the middle-class and professionals left. So you were left with a low-income, poorly educated community with opportunities only for very low-wage jobs. Not only are your role models and economic engine gone, your leadership is too.
+
 >everything is related to everything else
 
 >the more you know, the more you accumulate
