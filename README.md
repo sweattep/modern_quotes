@@ -9,6 +9,8 @@
 
 >execute bespoke, beautiful ideas
 
+>You're better off making sure you perfect one, maybe two things instead of being mediocre at three and four.
+
 >working isn't a problem, but everybody needs to be rejuvenated. You don't get that time now
 
 >I took a look at your resume and think we should start with a phone conversation.
