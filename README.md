@@ -77,6 +77,8 @@
 
 >You don't throw more gasoline on the fire to put it out
 
+>it didn't have Rod-L on that rear panel, it meant it was not a real IBM
+
 >Whatever we are as humans is now manifest in the Web: Our beauty, hatred, fragility, and ferocity; our kindness, cruelty, confusion, and clarity. Our wars. Our peace
 
 >He built the best family he could, then built a career around that. I would absolutely like to see his book in school libraries and curriculums.
