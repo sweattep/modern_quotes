@@ -934,6 +934,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Differentiate between talent and skill to determine what you can learn and what you cannot. For example, communication is a skill, but photographic memory is not.
 
+>He talked to me about his personal experience, where his peers in several companies rose to the highest heights while he was stifled. There was no talent deficit, but an opportunity deficit.
+
 >Currently, there is lack of economical incentive given that available processes used in recycling batteries to reclaim metals require 6-10 times more energy than extracting/refining those metals from ores.
 
 >Take advantage of the fact that social media and technology are both ephemeral by design, and invest your resources in timeless aspects of business such as the concept of the long tail.
