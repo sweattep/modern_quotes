@@ -11,6 +11,8 @@
 
 >Everything is related to everything else. That's all. Just keep that in mind, learn whatever you can and help others learn what they can. I do the best I can, and I tell everybody, "Do the best you can for someone else."
 
+>I believe that everything you do bad comes back to you. So everything that I do that's bad, I'm going to suffer for it. But in my heart, I believe what I'm doing is right.
+
 >You're better off making sure you perfect one, maybe two things instead of being mediocre at three and four.
 
 >working isn't a problem, but everybody needs to be rejuvenated. You don't get that time now
