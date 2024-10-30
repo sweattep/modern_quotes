@@ -488,6 +488,8 @@ sell the goods that are less popular
 
 >If you spend too much time thinking about a thing, you'll never get it done.
 
+>benign neglect. The subject has been too much talked about...
+
 >Not just leaving Twitter, but the whole show.
 
 >Any intelligent Internet user deals in plain text.
