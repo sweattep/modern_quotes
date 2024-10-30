@@ -9,6 +9,8 @@
 
 >execute bespoke, beautiful ideas
 
+>Can't cut corners with the IRS; percentages and deductions must be applied precisely. Rules ensure accuracy and adherence to regulations, unlike heuristic systems that could introduce variability and errors.
+ 
 >Everything is related to everything else. That's all. Just keep that in mind, learn whatever you can and help others learn what they can. I do the best I can, and I tell everybody, "Do the best you can for someone else."
 
 >I believe that everything you do bad comes back to you. So everything that I do that's bad, I'm going to suffer for it. But in my heart, I believe what I'm doing is right.
