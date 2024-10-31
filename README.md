@@ -1,6 +1,8 @@
 >>if i had a job before the dawn of the internet, the typewriter, and the calculator, what would it be?
 >>=
 
+>I am a founder of Silicon Valley.
+
 >you must be educated, no matter what the discipline
 
 >his identity is Jewish and Mediterranean
