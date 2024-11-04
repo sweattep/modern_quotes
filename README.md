@@ -83,6 +83,8 @@
 
 >He hired a really good team that put together a lot of good work for us
 
+>billions in subsidies for networks they don't consistently upgrade, raise prices endlessly, and then fund covert attacks
+
 >You don't throw more gasoline on the fire to put it out
 
 >it didn't have Rod-L on that rear panel, it meant it was not a real IBM
