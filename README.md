@@ -609,6 +609,8 @@ done.
 
 >The functionality includes the rendering engine for the 2D and 3D graphics, the physics part of the program, including collision detection and response, sounds, animations, rendering, scripting, artificial intelligence, and memory management.
 
+>knows how its old engine works
+
 >We don't advocate for particular policies or reforms
 
 >articulate a singular mission or clear product vision and build confidence internally that we can execute against it.
