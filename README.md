@@ -9,6 +9,8 @@
 
 >There was no field. I just wanted to learn how to do something well.
 
+>You know you're a good leader, if people follow you, if only out of a sense of curiousity
+
 >execute bespoke, beautiful ideas
 
 >Can't cut corners with the IRS; percentages and deductions must be applied precisely. Rules ensure accuracy and adherence to regulations, unlike heuristic systems that could introduce variability and errors.
