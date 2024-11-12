@@ -1076,6 +1076,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >I had trouble making tough decisions. I was not any good at the job interview process, and I made mistakes. I found it very difficult to fire anyone. I didn't make major decisions that required some boldness, like adding new cities.
 
+>You're going to be in trouble today.
+
 >Big ran New York. 2Pac ran America.
 
 >There are infinite combinations once you consider the variables of grip, speed, and angle
