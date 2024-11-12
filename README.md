@@ -203,9 +203,11 @@
 
 >I'll never let them forget it.
 
->People were going to forget the struggle as to how we have come to where we are today. We don’t appreciate that history. All we’re concerned about is what’s happening now.
+>People were going to forget the struggle as to how we have come to where we are today. We don't appreciate that history. All we're concerned about is what's happening now.
 
->It is the people from Lemon City who with a machete and the strength of their backs cleared the land to make Miami what it is today. And we don’t know that history. I hope that this begins and serves as an example of our becoming interested in how we got to where we are.
+>he taught U.S. History at San Quentin
+
+>It is the people from Lemon City who with a machete and the strength of their backs cleared the land to make Miami what it is today. And we don't know that history. I hope that this begins and serves as an example of our becoming interested in how we got to where we are.
 
 >Sometimes the old ways are best
 
