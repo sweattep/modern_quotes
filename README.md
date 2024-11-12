@@ -29,6 +29,8 @@
 
 >I took a look at your resume and think we should start with a phone conversation.
 
+>hip-hop has transcended
+
 >special interests is nothing but corporate america
 
 >when they took the right away from us to discipline our children
