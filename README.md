@@ -11,6 +11,8 @@
 
 >You know you're a good leader, if people follow you, if only out of a sense of curiousity
 
+>completeness must sacrificed whenever implementation simplicity is jeopardized. Consistency can be sacrificed to achieve completeness if simplicity is retained; especially worthless is consistency of interface
+
 >execute bespoke, beautiful ideas
 
 >never designed to be secure
