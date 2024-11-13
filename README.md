@@ -927,6 +927,8 @@ done.
 
 >Grow your network offline, then follow up online as people reach out. Volunteer for community events such as local cleanup, festivals, or recreational activities. Put business cards on bulletin boards at your local community center, leave flyers at your local gym, donate bookmarks to your local library, etc, etc.
 
+>Planes are already flying around thunderstorms and turbulence areas. We will need to add one more constraint to flight planning, which is avoiding areas of contrail formation.
+
 >Interactive documentation which accepts feedback via form submission is the best way to avoid losing context. Placing contextual help links within the documentation, and adding a link to the feedback form within each, would be an easy way to accomplish this.
 
 >Hip-Hop is a word of mouth, street culture. That’s what it is. It’s not a technology culture
