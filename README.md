@@ -842,6 +842,8 @@ done.
 >There are several reports on the antiviral activity of numerous plants against highly pathogenic viruses, including coronaviruses. The plants of Echinacea genus are one among those plants, which are well known for their potential antiviral activity against pathogenic coronaviruses. Echinacea angustifolia (E. angustifolia) is one of the popular medical plants belonging to this genus with medicinal value, including antimicrobial and anti-inflammatory activities.
 
 > There is a window of opportunity for teaching and learning; the task is to know when it appears and exploit it.
+ 
+>all of them should be getting the tools to speak for themselves, not have people speak for them.
 
 >Decouple the test framework from the application framework through the use of a wrapper based API. This will allow you to upgrade to new or different application frameworks without having to rewrite all your tests. Instead, you simply need to write a new set of wrappers for the new API, while the underlying assertions remain the same.
 
