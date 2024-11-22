@@ -13,6 +13,8 @@
 
 >completeness must sacrificed whenever implementation simplicity is jeopardized. Consistency can be sacrificed to achieve completeness if simplicity is retained; especially worthless is consistency of interface
 
+>the United San Francisco Freedom Movement. Led by Bill Bradley Jr., a Marine veteran and law student; and Tracy Sims, a Berkeley High graduate
+
 >execute bespoke, beautiful ideas
 
 >never designed to be secure
