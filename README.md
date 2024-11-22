@@ -673,6 +673,8 @@ done.
 
 >Sometimes we must fall, sometimes we will rise - some must be hurt while others have fortune, for that is the only way we can learn to rely on one another. As one is blessed, it is his privilege to help those whose lives are not as easy.
 
+>whose lifestyle is defined by others, whose opportunities are defined by others, whose role in society is defined by others
+
 >Once it has become a crime to tell the truth, then we will have tyranny.
 
 >Truth works with all patients across all cultures
