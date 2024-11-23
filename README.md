@@ -951,6 +951,8 @@ done.
 
 >By 1779, Hope, who was described by the Virginia Gazette as 'Caesar, the famous barber of York', had been freed. Enslaved for 36 years, his owner in 1779 petitioned the Virginia Assembly to set him free. This became possible thanks to the fame he had earned for his occupation. Reports said at least 32 residents of Yorktown supported Hope's freedom. Five years after becoming a free man, he shed the slave name 'Caesar' and started doing business in Williamsburg under the name John Hope. He also purchased and freed his own son, Aberdeen. In the 1790s, Hope purchased a lot on Shockoe Hill, a few blocks west of the Capitol building. While accumulating property, he got married and had two children. Five years ago, the life and journey of Hope inspired a new Colonial Williamsburg site. Colonial Williamsburg has since the 1920s served as a museum and education site, and it is very popular in the American South. In October 2017, it opened Hope's Barber Shop to interpret the remarkable story of Hope.
 
+>It has not been the desire of the promoter to colonize
+
 >Mr. Perkins
 has been a General Partner of Kleiner Perkins Caufield & Byers, a private
 investment partnership, since 1972, and has served as either a general or
