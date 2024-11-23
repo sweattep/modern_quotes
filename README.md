@@ -629,6 +629,8 @@ done.
 
 >We don't advocate for particular policies or reforms
 
+>due process does not require any particular form
+
 >articulate a singular mission or clear product vision and build confidence internally that we can execute against it.
 
 >I thought it was a real gun the entire time, and honestly, I just didn't want anyone to get hurt
