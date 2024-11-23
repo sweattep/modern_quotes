@@ -903,6 +903,8 @@ done.
 
 >This plainly means that the presence of a single noneducational purpose, if substantial in nature, will destroy the exemption regardless of the number or importance of truly educational purposes.
 
+>University facilities may not, of course, be used
+
 >Make the product. Make sure that the product can stand shoulder to shoulder with the industry standard and make sure that your product stands out from the rest
 
 >actually do work on the political and social layers of electronic freedoms
