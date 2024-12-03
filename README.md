@@ -53,6 +53,8 @@
 
 >If the song was created more than 120 years ago and the author is unknown, it is likely in the public domain
 
+>learning activities designed to explore how to find meaning in data, primarily using open data from the NBA and WNBA
+
 >look forward to sharing
 
 >And he carried to his grave a feeling that Asian Americans were discriminated against also.
