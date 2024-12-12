@@ -11,6 +11,8 @@
 
 >You know you're a good leader, if people follow you, if only out of a sense of curiousity
 
+>a 400 page “organizational bible”
+
 >completeness must sacrificed whenever implementation simplicity is jeopardized. Consistency can be sacrificed to achieve completeness if simplicity is retained; especially worthless is consistency of interface
 
 >One major contributor to procrastination is uncertainty: having a hazy sense of how long the task will take usually makes it seem larger and more involved than it turns out to be.
