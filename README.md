@@ -25,6 +25,8 @@
 
 >give workers the freedom to walk away from a job
 
+>there is no choice between illness and health
+
 >Can't cut corners with the IRS; percentages and deductions must be applied precisely. Rules ensure accuracy and adherence to regulations, unlike heuristic systems that could introduce variability and errors.
  
 >Everything is related to everything else. That's all. Just keep that in mind, learn whatever you can and help others learn what they can. I do the best I can, and I tell everybody, "Do the best you can for someone else."
