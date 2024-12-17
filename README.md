@@ -13,6 +13,8 @@
 
 >a 400 page “organizational bible”
 
+>OK, is this going to be the only thing I ever accomplish in life?
+
 >completeness must sacrificed whenever implementation simplicity is jeopardized. Consistency can be sacrificed to achieve completeness if simplicity is retained; especially worthless is consistency of interface
 
 >One major contributor to procrastination is uncertainty: having a hazy sense of how long the task will take usually makes it seem larger and more involved than it turns out to be.
