@@ -1209,6 +1209,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >When the other guy does something that you do, do it their way. That's how you build.
 
+>This was something I knew I would never get bored with, because how can I get bored? I would always be learning, and I would never, ever master it. That was part of the appeal
+
 >There is a high likelihood that you are going to build something that is rarely or never used
 
 >Who's torturing the kids with the proverbial pop quiz?
