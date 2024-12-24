@@ -729,6 +729,8 @@ done.
 
 >The only difference as compared with the old, outspoken slavery is this, that the worker of today seems to be free because he is not sold once for all, but piecemeal by the day, the week, the year, and because no one owner sells him to another, but he is forced to sell himself in this way instead, being the slave of no particular person, but of the whole property-holding class.
 
+>people around the country, or around the world, are basically working people who want to be free, who want to be themselves.
+
 >the most class conscious of the race
 
 >Slavery was not born of racism, rather racism was the consequence of slavery.
