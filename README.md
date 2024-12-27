@@ -654,6 +654,8 @@ done.
 >The user interface is the product
 
 >Authentication simply identifies a party, authorization defines whether or not they can perform one or more actions
+
+>Friendship is many times just a word. Actions are everything. Believe in those who show you actions worth believing in.
    
 >Properties of the object being enumerated may be deleted during enumeration
 
