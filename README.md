@@ -7,6 +7,10 @@
 
 >his identity is Jewish and Mediterranean
 
+>physical activity has to be done 3–5 times/week and for at least 20 min to be effective and should involve aerobic, resistance exercises, or a combination of both
+
+>Preventing weight gain and obesity, which are linked to increased cancer risk
+
 >There was no field. I just wanted to learn how to do something well.
 
 >You know you're a good leader, if people follow you, if only out of a sense of curiousity
