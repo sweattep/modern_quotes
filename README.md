@@ -7,6 +7,8 @@
 
 >his identity is Jewish and Mediterranean
 
+>I need the electrolytes, I’m always exercising
+
 >physical activity has to be done 3–5 times/week and for at least 20 min to be effective and should involve aerobic, resistance exercises, or a combination of both
 
 >Preventing weight gain and obesity, which are linked to increased cancer risk
