@@ -3,6 +3,8 @@
 
 >I am a founder of Silicon Valley.
 
+>they organized politically to negotiate with city officials.
+
 >you must be educated, no matter what the discipline
 
 >his identity is Jewish and Mediterranean
