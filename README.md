@@ -753,6 +753,8 @@ done.
 
 >Formerly the master selected the slave; today the slave selects his master
 
+>the State without slavery
+
 >It is the same among us: people of our day consider the position of the laborer to be a natural, inevitable economic condition, and they do not call it slavery. And as, at the end of the Eighteenth Century, the people of Europe began little by little to understand that what formerly seemed a natural and inevitable form of economic life-namely, the position of peasants who were completely in the power of their lords-was wrong, unjust and immoral, and demanded alteration, so now people today are beginning to understand that the position of hired workmen, and of the working classes in general, which formerly seemed quite right and quite normal, is not what it should be, and demands alteration.
 
 >Debugging declarative languages which do not have debuggers, such as CSS or DSSSL, requires the ability troubleshoot based on the specification. Understanding the foundational concepts underlying the language, from algebra and geometry to propositional and predicate logic, is critical in order to separate erroneous input from erroneous output.
