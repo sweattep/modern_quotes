@@ -1154,6 +1154,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >The women are going to deal with you anyway, because of who you are
 
+>Ultimately pushing women out of the upper echelons of elite sports entirely
+
 >anything lost can be found again, except for time wasted (Samuel L Jackson in Fresh)
 
 >could a man enjoy being awakened at 6:30 a.m. by an alarm clock
