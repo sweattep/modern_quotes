@@ -1470,6 +1470,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >While knowledge about the harms of smoking appears to explain about 15% of the relationship between education and smoking, knowledge about the harms of drinking do not explain differences in drinking by education.
 
+>Overall, the results showed that low physical activity, opioid use, and smoking had the biggest impact on lifespan; these factors were associated with around a 30-45% higher risk of death during the study period. Stress, binge drinking, poor diet, and poor sleep hygiene were each associated with around a 20% increase in the risk of death, and a lack of positive social relationships was associated with a 5% increased risk of death.
+
 >Just a few good questions about a program, and careful parsing of the answers, can clarify how well each of these elements is designed and aligns with the others — and lead to significantly better decisions
 
 >Nobody cared about what I did or what African Americans did.
