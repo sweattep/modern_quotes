@@ -7,9 +7,13 @@
 
 >you must be educated, no matter what the discipline
 
+>Use only that which works, and take it from any place you can find it.
+
 >his identity is Jewish and Mediterranean
 
->I need the electrolytes, I’m always exercising
+>add what is specifically your own
+
+>I need the electrolytes, I'm always exercising
 
 >physical activity has to be done 3–5 times/week and for at least 20 min to be effective and should involve aerobic, resistance exercises, or a combination of both
 
