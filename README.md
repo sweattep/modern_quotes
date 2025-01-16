@@ -304,7 +304,7 @@
 >delays resulted from chronic understaffing or procedures with little provision for flexibility. These issues are of increasing importance when contractors are given incentives to perform within what are, in effect, fixed test budgets and schedules
 
 >The committee also identified chronic understaffing and a lack of experience
->
+
 >Resorting to technical language means you are determined to treat the masses as uninitiated
 
 >Fatigue and sleep deprivation are correlated to mandatory and voluntary overtime and are also associated with work-related accidents
@@ -349,7 +349,7 @@
 
 >Building any sort of web-based business dependent on some irreplaceable third party, such as Google, is risky.
 
->You can do it part-time. You can work from anywhere. I think the work will be interesting and I’ll be doing it too. I think the work will be important, which is why I’m doing it.
+>You can do it part-time. You can work from anywhere. I think the work will be interesting and I’ll be doing it too. I think the work will be important, which is why I'm doing it.
 
 >admission never translated into compensatory action or a genuine commitment to refrain from future interference
 
@@ -1135,6 +1135,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 >What's your alma mater? Books
 
 >The creating individual is always more important than any established style or system
+
+>in regard to what is important, we are passive; where we are active it is over trivialities
 
 >I had trouble making tough decisions. I was not any good at the job interview process, and I made mistakes. I found it very difficult to fire anyone. I didn't make major decisions that required some boldness, like adding new cities.
 
