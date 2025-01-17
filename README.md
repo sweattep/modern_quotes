@@ -1413,6 +1413,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Over Father's Day weekend, I experienced a health scare related to my heart. It was unexpected and served as a reminder of staying vigilant about our physical well-being, even when we are feeling fine.
 
+>New courses, especially AI ones, aren't attracting as many visitors as past launches did. And while the same percentage of visitors are signing up, they're not staying subscribed as long.
+
 >Whatsit called, the thingamajig that flummoxed you last time we went to the pub, almost got into a brouhaha, and had to skedaddle when the young whippersnapper with the nincompoop friend thought they bamboozled the discombobulated security guard by hiding the stolen doohickey under your chair?
 
 >"I produced the feature for a number of years getting a fee from Essence for my work," "Now [Essence] has stolen the list from me and taken it over without my permission or without compensating me." 
