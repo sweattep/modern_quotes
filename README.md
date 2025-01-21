@@ -5,6 +5,8 @@
 
 >they organized politically to negotiate with city officials.
 
+>If all you're worried about is technique, then you are cooking blind
+
 >you must be educated, no matter what the discipline
 
 >Use only that which works, and take it from any place you can find it.
