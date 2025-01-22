@@ -19,6 +19,8 @@
 
 >physical activity has to be done 3–5 times/week and for at least 20 min to be effective and should involve aerobic, resistance exercises, or a combination of both
 
+>I want to show the world I'm a good person with a good heart. I want to help the people, just like my grandmother taught me.
+
 >Preventing weight gain and obesity, which are linked to increased cancer risk
 
 >There was no field. I just wanted to learn how to do something well.
