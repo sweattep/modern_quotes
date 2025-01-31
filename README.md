@@ -5,6 +5,8 @@
 
 >they organized politically to negotiate with city officials.
 
+>it’s virtually impossible to positively identify someone by their email address
+
 >If all you're worried about is technique, then you are cooking blind
 
 >you must be educated, no matter what the discipline
