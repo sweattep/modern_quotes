@@ -5,6 +5,8 @@
 
 >they organized politically to negotiate with city officials.
 
+>The potential of an athlete is limited only by the level of their basic ability.
+
 >it’s virtually impossible to positively identify someone by their email address
 
 >If all you're worried about is technique, then you are cooking blind
