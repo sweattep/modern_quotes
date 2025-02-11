@@ -11,6 +11,8 @@
 
 >If all you're worried about is technique, then you are cooking blind
 
+>I would have made it uncool to neglect your health because, you know, to die over food don't make no sense. Food is not that good that you should leave this world for it and that your family should have to have you be absent.
+
 >you must be educated, no matter what the discipline
 
 >Use only that which works, and take it from any place you can find it.
