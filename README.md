@@ -538,6 +538,8 @@ sell the goods that are less popular
 
 >If a man guards a book year after year, which is more important, the man or the book?
 
+>the most important thing is not to amplify our fear
+
 >A book will outlive a man, a tool will outlive a book, a song will outlive them all
 
 >Do what you gotta do but know you gotta change, try to find a way to make it out the game
