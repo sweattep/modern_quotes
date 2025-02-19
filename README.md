@@ -25,6 +25,8 @@
 
 >physical activity has to be done 3–5 times/week and for at least 20 min to be effective and should involve aerobic, resistance exercises, or a combination of both
 
+>a suspicion would follow that we ourselves are not Christians
+
 >I got to get healthy not just for my sake, but also for my kids and for my wife
 
 >I want to show the world I'm a good person with a good heart. I want to help the people, just like my grandmother taught me.
