@@ -490,6 +490,8 @@ sell the goods that are less popular
 
 >The medical staff has ensured him that he is not at further risk of worsening the repaired knee. It's all a matter of pain tolerance.
 
+>i'm tired and i'm in pain
+
 >I declare my belief that we are suffering not from a too extended ballot, but from one too limited and unrepresentative. We enunciate a principle of government, and then deny its practice. If experience has established anything, it is that the interest of one class is never safe in the hands of another. There is no class so poor or ignorant in a Republic that it does not know its own suffering and needs better than the wealthy and educated classes. By the rule of justice it has the same right precisely to give them legal expression. That expression is bound to come, and it is wisest for it to come through the ballot box than through mobs and violence born of a feeling of misery and despair.
 
 >more merchants and fewer dudes, more piety and less religion, more economy and less wastefulness, more confidence and less envy.
