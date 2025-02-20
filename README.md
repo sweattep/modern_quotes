@@ -1203,6 +1203,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >The automation of data-driven stories has freed up journalists to focus on writing critical, qualitative articles.
 
+>Too often the discussion of AVs center around the savings of replacing the driver with technology. The reality, however, is that AVs do little to erase this cost but rather replaces driver costs with employees of different skill sets such as IT technicians or concierges. Many have tried to keep pace with technology but are starting to understand that competitive advantages exist for a reason.
+
 >Control is an illusion
 
 >Evil words are for evil women, and they are for evil men
