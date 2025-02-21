@@ -983,6 +983,8 @@ done.
 
 >Eat your food as your medicine, otherwise you have to eat medicine as your food.
 
+>The return from your work must be the satisfaction which that work brings you and the world's need of that work.
+
 >With all of you men out there who think that having a thousand different ladies is pretty cool, I have learned in my life I've found out that having one woman a thousand different times is much more satisfying.
 
 >a book read by a thousand different people is a thousand different books
