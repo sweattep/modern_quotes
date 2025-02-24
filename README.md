@@ -125,6 +125,8 @@
 
 >Building a portal that contains instructions on portal building
 
+>They were also aware, long before Pythagoras, of the rule that a triangle with sides 3, 4 and 5 units yields a perfect right angle, and Egyptian builders used ropes knotted at intervals of 3, 4 and 5 units in order to ensure exact right angles for their stonework (in fact, the 3-4-5 right triangle is often called “Egyptian”).
+
 >The more different the color of the plate from the color of the food that's on it, the less you'll serve yourself.
 
 >Don't get so ambitious about what you want to do that you never learn the fundamentals of the game
