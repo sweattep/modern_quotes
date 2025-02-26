@@ -361,6 +361,8 @@
 
 >I'd rather be someone's shot of whiskey, than everyone's cup of tea
 
+>As part of this evolution, we've made strategic adjustments, including transitioning offensive security operations to an outsourced model
+
 >Thoughts in your head are really no different than the sound of a bird outside. It is just that you decide that they are more or less relevant.
 
 >Do not do take home tests for interviews. tell them to kiss your grits. you will not hear back from them. they will steal your tech solutions, your pr processes, your creative, your intellectual property.
