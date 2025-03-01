@@ -71,7 +71,7 @@
 
 >hip-hop has transcended
 
-if you automate half a person's job they will make more mistakes, not less, and the job will be decidedly more tedious and deter the better employees from staying in the role. 
+>if you automate half a person's job they will make more mistakes, not less, and the job will be decidedly more tedious and deter the better employees from staying in the role. 
 
 >human in the loop plus unintelligent usability experience in the design of the software. You don't even have to test the system to have caught this vulnerability.
 
