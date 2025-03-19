@@ -1601,5 +1601,11 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Being confident that the candidate is moving in a direction of strength and brings something lacking to the team is best for building a strong organization.
 
+>resisting the reduction of collective liberation to individualized self-care.
+
+>the inability to imagine alternatives is itself a principal mechanism of capitalist hegemony
+
+>develop communal models of data governance.
+>
 >>i don't write code on the weekends
 >>=
