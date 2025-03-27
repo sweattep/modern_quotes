@@ -626,6 +626,10 @@ done.
 
 >Carotid arteries supply blood flow to facial tissues and the brain. When fat, cholesterol, and other particles build up in the inner carotid walls, they form a plaque that narrows the arteries. This is called stenosis, and is dangerous because it limits blood flow to your brain. Without the necessary blood flow, the brain lacks oxygen and the patient is likely to suffer a stroke.
 
+>Red dye 3, also labeled Red No. 3 or FD&C Red 3, is a synthetic color additive made from petroleum,
+
+>With synthetic food coloring, if it has a benzidine product in any variation, it is carcinogenic
+
 >I know pigs don't have veins I guess you born with out brains
 
 >The settlement in the second case featured a quid pro quo: employees would be reclassified in order to get overtime but would give up their stock options
