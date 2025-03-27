@@ -33,6 +33,8 @@
 
 >I got to get healthy not just for my sake, but also for my kids and for my wife
 
+>unhealthy diet may speed up biological aging, even in young adults.
+
 >I want to show the world I'm a good person with a good heart. I want to help the people, just like my grandmother taught me.
 
 >Preventing weight gain and obesity, which are linked to increased cancer risk
