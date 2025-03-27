@@ -113,6 +113,8 @@
 
 >it's never ok to disable submit buttons
 
+>In my not-so-humble opinion, macros are the reason why Lisp has never caught on in the mainstream. No Lisper can read anyone else’s Lisp code.
+
 >Use the Socratic Method to move the conversation from the realm of opinions to the realm of facts.
 
 >there's no app for deep learning
