@@ -1429,6 +1429,10 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Arguments that dispute the harmful effects of sanctions are either factually incorrect or premised on fallacious logic
 
+>Wisdom is only skin deep unless you can perform it instinctively.
+
+>In life, you can either win or you can be happy, not both
+
 >Leave the 'now this is what we're gonna do' speeches to the competition
 
 >Now, a supplement has to be proven dangerous -- in other words, people have to get sick or die -- before it can be banned.
