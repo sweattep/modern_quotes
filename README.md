@@ -1263,6 +1263,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >So learn from the past and work for the future/And don't be a slave to no computer
 
+>It means that all future voting practices, procedures, legislative plans, districts — even judicial districts — now had to pass muster
+
 >When I was in the mortgage business, at the end of the year they would write me a big, fat check. I say keep your check.
 
 >I doubt everyone, even those who are supposed to protect us
