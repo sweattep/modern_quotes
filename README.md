@@ -311,7 +311,9 @@
 
 >The power of mathematical models lies in their capacity to inform, not replace, empirical evidence in science.
 
->no matter who it is or how high the player is on the pole, he’s going to get on you from start to finish. It starts with the head
+>no matter who it is or how high the player is on the pole, he's going to get on you from start to finish. It starts with the head
+
+>If you can keep your head when all about you are losing theirs
 
 >Instead of just picking the best option, I try to invent new ones.
 
