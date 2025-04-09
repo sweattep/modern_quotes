@@ -5,6 +5,8 @@
 
 >they organized politically to negotiate with city officials.
 
+>it has been said that man is a rational animal.
+
 >are you focused on the date or the time, or are you focused on learning?
 
 >if we love nothing, we become nothing
