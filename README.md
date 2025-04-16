@@ -1495,6 +1495,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >as in most early applications of LLMs, the systems are primarily viewed by executives as a quick and easy way to cut costs and automate systems already rife with problems, frustrated consumers, and underpaid and overtaxed support employees.
 
+>this is tax payer money and everyone's Army – you have the right to ask why and make them answer
+
 >Givens created an entire development model in which each community would have: 1) producer cooperatives (particularly important for job creation, 2) consumer cooperatives, 3) credit unions, 4) low-income housing cooperatives, and 5) a community cooperative funded by profits from the other cooperatives to develop social programs like schools, hospitals, and child development centers.
 
 >Speak directly and shoot from the hip. Be real and be authentic. Be kind and be good to people. Share the lessons you’ve learned - good and bad. Laugh at yourself. Don't get pulled into negative sludge and never contribute to toxicity. Laugh at yourself some more. And always remember, the golden rule - It’s nice to be important, but it's more important to be nice
