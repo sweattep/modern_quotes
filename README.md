@@ -1128,6 +1128,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Machine learning is not impervious to spoofing. Machine learning relies more heavily on readily quantifiable data as inputs than existing processes in which humans can place ambiguous evidence in context.
 
+>the only review site I know that really gets into the nuts and bolts, covering stuff like cellular reception and speaker phone volume with actual, quantitative metrics
+
 >the illiterate of the 21st century will not be those who cannot read or write, but those who cannot unlearn the many lies they've been taught to believe.
 
 >Oftentimes, the reporters are sitting at their desks taking the same feed, therefore writing the same story. They’re not reporters, they're stenographers. The difference is the pretty person standing in front of the chroma key—which is often a picture of a place they’ve never been.
