@@ -7,6 +7,8 @@
 
 >it has been said that man is a rational animal.
 
+>The force of external circumstances, my friends
+
 >are you focused on the date or the time, or are you focused on learning?
 
 >if we love nothing, we become nothing
