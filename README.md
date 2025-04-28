@@ -1417,6 +1417,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Debugging declarative languages differs based on whether they are compiled or interpreted. Debugging a compiled declarative language is much easier due to the presence of compile time error checking. In light of this, creating a compiler if one does not exist for a declarative language can be the best way to improve the debugging experience. A declarative domain specific language which compiles to a general programming language would be an option as well.
 
+>Do not work in a way that affects your work negatively, specifically: do not reinvent the wheel, do not overthink, and always create an audit trail
+
 >At the end of the day, you fall back on your habits. How consistent are you going to be?
 
 >Down here in the real world we do not call something wrong unless it causes a problem.
