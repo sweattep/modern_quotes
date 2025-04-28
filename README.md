@@ -7,6 +7,8 @@
 
 >it has been said that man is a rational animal.
 
+>What will be the food of the future?
+
 >The force of external circumstances, my friends
 
 >are you focused on the date or the time, or are you focused on learning?
