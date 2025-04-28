@@ -9,6 +9,8 @@
 
 >What will be the food of the future?
 
+>food has no effect on the spirit
+
 >The force of external circumstances, my friends
 
 >are you focused on the date or the time, or are you focused on learning?
