@@ -995,6 +995,8 @@ done.
 
 >As a senior executive, you get paid to make a small number of high quality decisions
 
+>Great things are not done by impulse, but by a series of small things brought together.
+
 >Every person can be a user, creator and owner of data. Therefore, the new oil has been completely democratised and decentralised
 
 >I wouldn't trust myself to write a C++ HTTP application and expose it to the web
