@@ -971,6 +971,8 @@ done.
 
 >I didn't get that power from guns cuz there are no guns in jail. I got that power from books, and from thinking, and by strategizing
 
+>Without structured strategies, organizations risk inconsistent revenue, disengagement, and unsustainable growth.
+
 >The Sydney Local Health District, which is part of NSW Health, said an error had led to the entire year 12 cohort at St Joseph's being vaccinated, instead of just the Aboriginal students.
 
 >The four and five-year-old children, who are too young for any approved COVID-19 vaccine, were apparently given full adult doses. The parents say both children were showing signs of heart issues, and the younger child has been sick with a fever and a cough.
