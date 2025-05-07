@@ -1082,6 +1082,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >For example, the Copyright Office&mdash;which holds records of every copyright ever registered, including all those works which have passed into the public domain&mdash;could help catalogue the public domain and prevent it from being swept up by today's already overzealous automated filtering technologies
 
+>Creating reusable processes is an attractive pattern and should be widely adopted as this allows to keep fragments of common functionalities globally that are accessible for multiple processes.  A sub-process or an event sub-process on the other hand may contain functionality that is common in a particular process and may be accessed from multiple process points.
+
 >Copyright law does not protect ideas; it only protects the particular way an idea is expressed.
 
 >Copyright law does not protect the titles of books or movies, nor does it protect short phrases
