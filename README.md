@@ -1489,6 +1489,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >So if a very tiny percentage of your users have a certain disability would you then remove an accessibility feature because it wasn't serving enough disabled users?
 
+>I would guess that 99% of the money that people are spending on these projects today is just getting lit on fire.
+
 >If James Dean was a rapper, he would be me
 
 >He represents euthanasia, to die slowly, to die painlessly, you know what i mean
