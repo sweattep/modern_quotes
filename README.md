@@ -1170,6 +1170,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Metaprogramming allows you to generate language level analysis and interpretation features such as parsers, lexers, and abstract syntax trees. Be sure to benchmark any user defined functions which use metaprogramming features to ensure there are clear performance expectations and limits defined before releasing them.
 
+>people come here to look at trees, things they know about, and then after a while they forget they're looking at plants.They get caught up in the art. They go away remembering that they looked at art. As long as you keep the flow of abstract shapes, you keep people's attention. Once you start repeating yourself, you're going to lose them. That's why students enjoy my yard. There's always movements, spirals, tiers, and abstractions that are never the same.
+
 >I always believe that the easy way is the right way
 
 >Make your own shows with private funding and get them out there asap and everywhere you can
