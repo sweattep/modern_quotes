@@ -1663,6 +1663,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >the inability to imagine alternatives is itself a principal mechanism of capitalist hegemony
 
+>the talent pipeline is drying up, and there are fewer experienced accountants to do strategic thinking and other high-level tasks that cannot be done by software. Additionally, artificial intelligence is advancing in its ability to take on tasks historically performed by skilled managers trained in accounting. This can allow senior managers to leverage their expertise but can further squeeze the pipeline.
+
 >develop communal models of data governance.
 >
 >>i don't write code on the weekends
