@@ -889,6 +889,8 @@ done.
 
 >If you sit around starting to feel sorry for yourself, and blaming everyone else for your position in life, it is like being in quicksand. In quicksand, if you start flailing all about and panicking with each movement you go in deeper, but if you just stay calm and look about, chances are you'll see a twig or something you can reach to pull yourself out. Or, if you stay there long enough someone will come and rescue you.
 
+>use a lot of metaphors, idioms, allegory
+
 >It's not a complex thing to do what's right. Look, if I love you as I love myself, I'm not suicidal. If I harm you, I've harmed myself because you are a part of me.
 
 >Lots of us manage to exist for years without ever sinning against society, but we sin against loveliness every hour of the day.
