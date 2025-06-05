@@ -19,7 +19,7 @@
 
 >The potential of an athlete is limited only by the level of their basic ability.
 
->it’s virtually impossible to positively identify someone by their email address
+>it's virtually impossible to positively identify someone by their email address
 
 >If all you're worried about is technique, then you are cooking blind
 
@@ -1670,6 +1670,9 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 >the inability to imagine alternatives is itself a principal mechanism of capitalist hegemony
 
 >the talent pipeline is drying up, and there are fewer experienced accountants to do strategic thinking and other high-level tasks that cannot be done by software. Additionally, artificial intelligence is advancing in its ability to take on tasks historically performed by skilled managers trained in accounting. This can allow senior managers to leverage their expertise but can further squeeze the pipeline.
+
+>Who hurt you? What are you really angry about? Because it’s not me.
+>Maybe I’m just a mirror—reminding you of who you’ll never be
 
 >develop communal models of data governance.
 >
