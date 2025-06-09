@@ -17,6 +17,14 @@
 
 >everything was focused on delivery, and not really about learning
 
+>stop thinking about the user experience as being an experience, it's really an experiment
+
+>design for throwawayability. Most engineers, if you're not careful, will fall in love with a solution, and not a problem
+
+>don't talk solution. talk problem. everybody rallies around a problem
+
+>you don't design for reuse, you design for use
+
 >if we love nothing, we become nothing
 
 >The potential of an athlete is limited only by the level of their basic ability.
