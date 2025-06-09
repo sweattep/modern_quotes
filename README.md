@@ -15,6 +15,8 @@
 
 >are you focused on the date or the time, or are you focused on learning?
 
+>everything was focused on delivery, and not really about learning
+
 >if we love nothing, we become nothing
 
 >The potential of an athlete is limited only by the level of their basic ability.
