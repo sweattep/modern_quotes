@@ -1232,7 +1232,9 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >There are infinite combinations once you consider the variables of grip, speed, and angle
 
->corporate culture basically consuming the entrepreneurial culture 
+>corporate culture basically consuming the entrepreneurial culture
+
+>roll your own everything is something that's deep
 
 >exercise is the most underutilized anti-depressant
 
