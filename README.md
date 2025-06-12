@@ -25,7 +25,11 @@
 
 >you don't design for reuse, you design for use
 
+>agile has no brain
+
 >if we love nothing, we become nothing
+
+>an audit product, at its most fundamental nature, must have a person involved who is an experienced qualified professional
 
 >The potential of an athlete is limited only by the level of their basic ability.
 
