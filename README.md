@@ -331,6 +331,8 @@
 
 >Baseball has been good to me since I quit trying to play it.
 
+>She was hitting the ball from the frame. Somehow, magically, the ball lands in the court.
+
 >And often to understand something you have to work it out yourself because no one else has done it
 
 >Connect through powerful applications of bold monochromatic colour. Colour palettes that deliver real visceral impact generally have a dominant colour that dictates the overall look and feel.
