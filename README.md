@@ -1694,7 +1694,9 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 >Who hurt you? What are you really angry about? Because it’s not me.
 >Maybe I’m just a mirror—reminding you of who you’ll never be
 
+>the thought of a distracted mind cannot be sincere
+
 >develop communal models of data governance.
->
+
 >>i don't write code on the weekends
 >>=
