@@ -205,6 +205,8 @@
 
 >culturally, historically, or aesthetically important, and/or inform or reflect life in the United States
 
+>the "cultural boom" has been largely an explosion of words
+
 >simply by spittin, I've been blessed
 
 >the average man with laser-like focus
