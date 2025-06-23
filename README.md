@@ -95,6 +95,8 @@
 
 >I believe that everything you do bad comes back to you. So everything that I do that's bad, I'm going to suffer for it. But in my heart, I believe what I'm doing is right.
 
+>everybody is included, right?
+
 >You're better off making sure you perfect one, maybe two things instead of being mediocre at three and four.
 
 >I wonder at the man who does not find his own imperfections.
