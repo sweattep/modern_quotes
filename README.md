@@ -578,6 +578,8 @@ sell the goods that are less popular
 
 >Human nature does not change
 
+>There is nothing so useless as doing efficiently, that which should not be done at all
+
 >Be grateful for blessings, don't every change, keep your essence
 
 >pushstates aren't really navigations
