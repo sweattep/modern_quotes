@@ -33,6 +33,8 @@
 
 >an audit product, at its most fundamental nature, must have a person involved who is an experienced qualified professional
 
+>Want to preserve a video game? Release its source code after the main selling window and let the public do it. Boom, it's preserved
+
 >The potential of an athlete is limited only by the level of their basic ability.
 
 >it's virtually impossible to positively identify someone by their email address
