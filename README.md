@@ -7,6 +7,8 @@
 
 >it has been said that man is a rational animal.
 
+>just a little better the next time
+
 >What will be the food of the future?
 
 >food has no effect on the spirit
