@@ -19,6 +19,8 @@
 
 >are you focused on the date or the time, or are you focused on learning?
 
+>embrace who you trust, express what you value, and enjoy playing your role
+
 >the canoe is leaking, but you patch the paddle
 
 >everything was focused on delivery, and not really about learning
