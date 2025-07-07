@@ -23,6 +23,8 @@
 
 >the canoe is leaking, but you patch the paddle
 
+>I'll tell you one thing: I'm not going to die here in Portugal.
+
 >everything was focused on delivery, and not really about learning
 
 >stop thinking about the user experience as being an experience, it's really an experiment
