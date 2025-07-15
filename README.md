@@ -15,6 +15,8 @@
 
 >The fat in meat and dairy foods is saturated.
 
+>Let go early = smaller hop. Hold it down = maximum height. But it wasn't binary - I interpreted your intent
+
 >The force of external circumstances, my friends
 
 >are you focused on the date or the time, or are you focused on learning?
