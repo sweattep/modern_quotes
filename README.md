@@ -17,6 +17,8 @@
 
 >Let go early = smaller hop. Hold it down = maximum height. But it wasn't binary - I interpreted your intent
 
+>The future is created by those who tell the best story.
+
 >The force of external circumstances, my friends
 
 >are you focused on the date or the time, or are you focused on learning?
