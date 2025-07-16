@@ -17,6 +17,8 @@
 
 >Let go early = smaller hop. Hold it down = maximum height. But it wasn't binary - I interpreted your intent
 
+>people don't care what you know, unless they know that you care
+
 >The future is created by those who tell the best story.
 
 >The force of external circumstances, my friends
