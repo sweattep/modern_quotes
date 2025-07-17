@@ -7,6 +7,8 @@
 
 >it has been said that man is a rational animal.
 
+>I told myself, "All right, if you screw me, I'm going to screw you twice as hard."
+
 >just a little better the next time
 
 >What will be the food of the future?
