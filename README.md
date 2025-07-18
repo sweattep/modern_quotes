@@ -97,6 +97,8 @@
 
 >One major contributor to procrastination is uncertainty: having a hazy sense of how long the task will take usually makes it seem larger and more involved than it turns out to be.
 
+>I procrastinate, but mostly because there's always too many things to do
+
 >the United San Francisco Freedom Movement. Led by Bill Bradley Jr., a Marine veteran and law student; and Tracy Sims, a Berkeley High graduate
 
 >execute bespoke, beautiful ideas
