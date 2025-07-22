@@ -65,6 +65,8 @@
 
 >you must be educated, no matter what the discipline
 
+>I'm very sorry, we don't hire professional Negroes
+
 >Use only that which works, and take it from any place you can find it.
 
 >his identity is Jewish and Mediterranean
