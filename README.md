@@ -5,6 +5,8 @@
 
 >they organized politically to negotiate with city officials.
 
+>You cannot look forward if you are looking left and right.
+
 >it has been said that man is a rational animal.
 
 >I told myself, "All right, if you screw me, I'm going to screw you twice as hard."
