@@ -489,6 +489,8 @@
 
 >Amazon S3 acts as the foundation for all data platforms built on AWS.
 
+>When training data is sparse for a particular domain, the model's learned representations become less reliable. When the temperature parameter is high, we get more diverse but potentially less accurate outputs.
+
 >Stop perpetuating a Web and Web apps that are inaccessible and harmful. For me, this has especially harmed me with the lack of user controls in motion graphics, flickering animations, too many moving animations on a page – um, these are well-known legally binding issues.
 
 >In simple terms, a webhook is an API request that sends data to a receiver in an unidirectional manner, without expecting any response. It is typically used to notify a system when one or more events have taken place.
