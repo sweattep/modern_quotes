@@ -1057,6 +1057,8 @@ done.
 
 >Great things are not done by impulse, but by a series of small things brought together.
 
+>He's the type of guy that every great coach makes you want to play for him. And what I mean, to expand on that, is you care so deeply about the person, you don't want to let him down.
+
 >Every person can be a user, creator and owner of data. Therefore, the new oil has been completely democratised and decentralised
 
 >I wouldn't trust myself to write a C++ HTTP application and expose it to the web
