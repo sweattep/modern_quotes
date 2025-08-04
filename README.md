@@ -21,6 +21,8 @@
 
 >Let go early = smaller hop. Hold it down = maximum height. But it wasn't binary - I interpreted your intent
 
+>I imagine, that right now, you’re feeling a bit like Alice. Tumbling down the rabbit hole
+
 >people don't care what you know, unless they know that you care
 
 >The future is created by those who tell the best story.
