@@ -1736,5 +1736,7 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >develop communal models of data governance.
 
+>There are concerns of language—and I don’t mean just translating copy into Spanish! It will be critical that I use the regionalisms, terms, and cultural references
+
 >>i don't write code on the weekends
 >>=
