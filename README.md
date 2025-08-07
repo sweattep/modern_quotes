@@ -11,6 +11,8 @@
 
 >I told myself, "All right, if you screw me, I'm going to screw you twice as hard."
 
+>I was almost questioning like, ‘Damn man, maybe I should have stayed in school and figured something else out.’ Like, ‘I don’t know if I made the right decision getting in the car
+
 >just a little better the next time
 
 >What will be the food of the future?
