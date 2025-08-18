@@ -211,6 +211,8 @@
 
 >He hired a really good team that put together a lot of good work for us
 
+>well, if you say that, then what I need is the engineering lead of every studio in publishing
+
 >billions in subsidies for networks they don't consistently upgrade, raise prices endlessly, and then fund covert attacks
 
 >You don't throw more gasoline on the fire to put it out
