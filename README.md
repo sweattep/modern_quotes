@@ -3,6 +3,16 @@
 
 >I am a founder of Silicon Valley.
 
+>You can’t control what your users do. You can only make it easy for them to do the right thing and hard to do the wrong thing.
+
+>The only way to go fast is to go well. If you want to go quickly, clean up your code.
+
+>You fix production by fixing production.
+
+>Sometimes, the elegant implementation is just a function. Not a method. Not a class. Not a framework. Just a function. 
+
+>The entire history of software engineering is that of rising levels of abstraction.
+
 >they organized politically to negotiate with city officials.
 
 >You cannot look forward if you are looking left and right.
