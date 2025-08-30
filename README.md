@@ -5,6 +5,8 @@
 
 >Best is an opinion, working is a fact
 
+>The most conscientious employees in your organization are the most bitter. They see the quality issues, they often address them, and they get no recognition for doing so.
+
 >You can’t control what your users do. You can only make it easy for them to do the right thing and hard to do the wrong thing.
 
 >The only way to go fast is to go well. If you want to go quickly, clean up your code.
