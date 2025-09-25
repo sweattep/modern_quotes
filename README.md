@@ -5,6 +5,10 @@
 
 >Best is an opinion, working is a fact
 
+>"in order to see me, you have to see not only what is inside the boundary of my skin, but you have to see what is outside it too"
+
+>"you cannot get an intelligent organism, such as a human being, out of an unintelligent universe"
+
 >stay current on dozens of websites by simply reviewing the feeds
 
 >Death, in his estimation, has resulted from email becoming so pervasive
