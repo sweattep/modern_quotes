@@ -9,6 +9,8 @@
 
 >"you cannot get an intelligent organism, such as a human being, out of an unintelligent universe"
 
+>out of 30 days, if you can get 20 days that you did the most important thing you had to do that day
+
 >stay current on dozens of websites by simply reviewing the feeds
 
 >Death, in his estimation, has resulted from email becoming so pervasive
