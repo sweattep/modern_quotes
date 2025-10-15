@@ -3,6 +3,8 @@
 
 >I am a founder of Silicon Valley.
 
+>the more you have what you want, the less you're gonna do what you want
+
 >Best is an opinion, working is a fact
 
 >"in order to see me, you have to see not only what is inside the boundary of my skin, but you have to see what is outside it too"
