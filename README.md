@@ -1773,6 +1773,9 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Lean in to help make a difference for others, but for you personally, don’t be afraid or embarrassed to ask for help when it’s needed! Focus on always being your most genuine and authentic self, understanding you never need to be alone in the brightest or darkest moments in life. We continue to see thousands of companies laying off people every week, including what we don't see or read about when not shared, so imagine what a place this world would be if each of us reached out to offer support to just one person!
 
+>Soul binds words like chains  
+>Bound by oath, then forgotten  
+>Conscience finds the fault
 
 >>i don't write code on the weekends
 >>=
