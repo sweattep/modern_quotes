@@ -5,6 +5,8 @@
 
 >the more you have what you want, the less you're gonna do what you want
 
+>I couldn't believe I could ever get touched
+
 >Best is an opinion, working is a fact
 
 >"in order to see me, you have to see not only what is inside the boundary of my skin, but you have to see what is outside it too"
