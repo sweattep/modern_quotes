@@ -5,6 +5,8 @@
 
 >the more you have what you want, the less you're gonna do what you want
 
+>Things always missin', maybe it could be (Uh) My friends, but they ain't friends if they robbin' me Stoppin' me, from makin' a profit, see
+
 >I couldn't believe I could ever get touched
 
 >Best is an opinion, working is a fact
