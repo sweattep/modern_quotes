@@ -1651,6 +1651,7 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Wrap the themes of your campaign in an interactive experience, or ask audiences for their opinions to begin your own community
 
+>And no matter what it is, make sure you don't wait. That's the thing I get from this. Don't wait to take action, because it could come fast, it could come quick.
 >(don't) reach for the S.T.A.R.S.:
 >S - Steroids
 >T - Trauma
