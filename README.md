@@ -1021,6 +1021,8 @@ done.
 
 >Live attenuated vaccines take more time to develop because they rely on the amplification and weakening of the pathogenic attributes of the original virus. However, they can induce an immune response similar to that induced by a natural infection targeting several viral antigens, and are thus presumably more effective than the other vaccine types, although further studies are needed to provide the necessary evidence. Therefore, live attenuated vaccines are expected to be one of the most effective vaccines against different variants that may arise.
 
+>Programs have now got very large and very critical – well beyond the scale which can be comfortably tackled by formal methods. There have been many problems and failures, but these have nearly always been attributable to inadequate analysis of requirements or inadequate management control. It has turned out that the world just does not suffer significantly from the kind of problem...(tackled by formal methods)
+
 >We didn't exist in the other papers. We were neither born, we didn't get married, we didn't die, we didn't fight in any wars, we never participated in anything of a scientific achievement. We were truly invisible unless we committed a crime.
 
 >I am aware of being in a beautiful prison, from which I can only escape by writing.
