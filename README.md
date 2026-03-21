@@ -676,6 +676,8 @@ sell the goods that are less popular
 
 >he who listens not to a few words of wisdom, will never listen, even unto a multitude
 
+>How can wisdom transcend the most holy and the most pure? Presumably only by virtue of the truth that the less sometimes means the more.
+
 >If you spend too much time thinking about a thing, you'll never get it done.
 
 >benign neglect. The subject has been too much talked about...
