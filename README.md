@@ -11,6 +11,8 @@
 
 >Best is an opinion, working is a fact
 
+>"It was just trying to figure out how can I get out of this loop and get to the next level."
+
 >"in order to see me, you have to see not only what is inside the boundary of my skin, but you have to see what is outside it too"
 
 >"you cannot get an intelligent organism, such as a human being, out of an unintelligent universe"
