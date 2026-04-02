@@ -139,6 +139,8 @@
 
 >I procrastinate, but mostly because there's always too many things to do
 
+>When you can't trust that the votes, the comments, and the engagement you're seeing are real, you've lost the foundation a community platform is built on.
+
 >the United San Francisco Freedom Movement. Led by Bill Bradley Jr., a Marine veteran and law student; and Tracy Sims, a Berkeley High graduate
 
 >execute bespoke, beautiful ideas
