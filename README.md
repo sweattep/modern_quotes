@@ -3,6 +3,8 @@
 
 >I am a founder of Silicon Valley.
 
+> if you type for three hours straight, you'll be done
+
 >the more you have what you want, the less you're gonna do what you want
 
 >Things always missin', maybe it could be (Uh) My friends, but they ain't friends if they robbin' me Stoppin' me, from makin' a profit, see
