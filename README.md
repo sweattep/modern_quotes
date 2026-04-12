@@ -3,6 +3,8 @@
 
 >I am a founder of Silicon Valley.
 
+>Our founding Olympic Club Foundation members had the foresight to establish the “Winged O Foundation” to help our community. These founding OCF members — including Melvyn Mark (President), Bob Tomasello (Vice President), Richard Skidmore (Secretary), Andy Burke (Chief Financial Officer), Roy Clay, Richard Guggenhime, and Michael Weise — saw the need, and wanted to provide other members the opportunity.
+
 > if you type for three hours straight, you'll be done
 
 >the more you have what you want, the less you're gonna do what you want
