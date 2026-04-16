@@ -1095,6 +1095,8 @@ done.
 
 >Actual speeds vary and are not guaranteed. Many factors affect speed, including equipment performance, interference, congestion, and speeds of visited websites. WiFi speeds affected by additional factors, including distance from Gateway, home configuration, personal device capabilities, and others. Faster upload speeds only available in upgraded areas but may not be available for certain customers, who will be notified.
 
+>the speed at which software develops outpaces the Department's ability to stay up to date. The Department must rapidly modernize its legacy software systems with resilient, affordable, and assured new software that has been designed, developed, and tested using processes that establish confidence in its performance. The Department must migrate to a Development-Security-Operations (DevSecOps) approach in its software development and evolve to a model of continuous development, continuous test, and continuous delivery. The Department must leverage modular open system architecture approaches to isolate hardware from software and enable rapid upgrades to secure processors.
+
 >The idea was to make writing simple web pages, and especially weblog entries, as easy as writing an email
 
 >Pick a product, any product on your desk. Introduce the product. Tell all the problems relating to the product. Tell how the product solves all those problems. Tell the customer where he or she can buy it and how much it costs.
