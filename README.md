@@ -1493,6 +1493,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >we will forever be distracted with possessions and trinkets and title
 
+>strategy based on actively partnering with portfolio companies to improve their corporate governance
+ 
 >take your favorite records and write your version of your favorite records with your words on that track
 
 >This is a conclusion revolting alike to common sense and common experience. Besides there is good reason to suspect a political motive for the charge. A motive other than the one they would have the world believe. It comes in close connection with the effort now being made to disfranchise the colored man. It comes from men who regard it innocent to lie
