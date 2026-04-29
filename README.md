@@ -1617,6 +1617,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >When we allow the interests of others to direct our goals and vision, we become subordinate to our own ideals.
 
+>Do not ignite the love in a woman when you're not going to cherish it.
+>
 >feeling unwell is just that: feeling unwell. To attach judgement without understanding is cruel and often wrong. If a woman is crying, is she therefore depressed? A yes answer is biased and unscientific. Finally and perhaps the most important piece? Individual instinct. I'd ask the individual (or self if it's me) what I think is happening. Statistically, patients are usually more accurate as to sources of discomfort or suffering.
 
 >Over Father's Day weekend, I experienced a health scare related to my heart. It was unexpected and served as a reminder of staying vigilant about our physical well-being, even when we are feeling fine.
