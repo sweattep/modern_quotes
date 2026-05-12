@@ -7,7 +7,7 @@
 
 >if you type for three hours straight, you'll be done
 
->i never let it get to me because i knew that is how he wanted me to react
+>i never let it get to me because i knew that is how he wanted me to react. i just laughed it off inside and prayed
 
 >teaching mathematics and English grammar was the most satisfying job I have ever held.
 
