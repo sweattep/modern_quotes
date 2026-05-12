@@ -5,7 +5,9 @@
 
 >Our founding Olympic Club Foundation members had the foresight to establish the “Winged O Foundation” to help our community. These founding OCF members — including Melvyn Mark (President), Bob Tomasello (Vice President), Richard Skidmore (Secretary), Andy Burke (Chief Financial Officer), Roy Clay, Richard Guggenhime, and Michael Weise — saw the need, and wanted to provide other members the opportunity.
 
-> if you type for three hours straight, you'll be done
+>if you type for three hours straight, you'll be done
+
+>i never let it get to me because i knew that is how he wanted me to react
 
 >teaching mathematics and English grammar was the most satisfying job I have ever held.
 
