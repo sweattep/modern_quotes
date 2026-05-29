@@ -15,6 +15,8 @@
 
 >Things always missin', maybe it could be (Uh) My friends, but they ain't friends if they robbin' me Stoppin' me, from makin' a profit, see
 
+>Happiness. Being happy is not about winning the Stanley Cup or money. Being happy is to be comfortable in your own skin, to have a good partner, to be there for your kids,
+
 >I don't them to be like they know what I'm gonna say because it's polite
 
 >I couldn't believe I could ever get touched
