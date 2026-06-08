@@ -1803,6 +1803,7 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >There are concerns of language—and I don’t mean just translating copy into Spanish! It will be critical that I use the regionalisms, terms, and cultural references
 
+>using our sense of orientation and actively taking part in navigation allows us to maintain our spatial memory abilities and engage the hippocampus. On the other hand, not doing so may have adverse effects on spatial memory, as we have shown here, and may negatively impact the integrity of the hippocampus. It is also possible that the over-engagement of the stimulus-response learning system, through the use of GPS, exerts negative effects on spatial memory due to the competitive nature of the two systems. Several studies have shown, for example, that lesioning the hippocampus or other structures that are part of the neural circuit mediating spatial memory results in impaired spatial memory but facilitates stimulus-response learning.
 
 >Lean in to help make a difference for others, but for you personally, don’t be afraid or embarrassed to ask for help when it’s needed! Focus on always being your most genuine and authentic self, understanding you never need to be alone in the brightest or darkest moments in life. We continue to see thousands of companies laying off people every week, including what we don't see or read about when not shared, so imagine what a place this world would be if each of us reached out to offer support to just one person!
 
