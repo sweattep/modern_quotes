@@ -1429,6 +1429,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >tax systems designed to force the population into the labor market through debt
 
+>"excluding indians not taxed"
+
 >they simultaneously abolished slavery and imposed a government that similarly did not even pretend to be based on a social contract or the will of the governed, but was simply based on superior firepower
 
 >we helped the property owner recover some of their equity in the form of excess proceeds that were the result of the auction buyer paying more for the property than the taxes owing to the county
