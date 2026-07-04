@@ -559,7 +559,9 @@
 
 >Sell the lifestyle
 
-sell the goods that are less popular
+>Forfeiture except during the Life of the Person
+
+>sell the goods that are less popular
 
 >sell less of more
 
