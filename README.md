@@ -1236,6 +1236,8 @@ Incorporated from 1974 until 1997. He is also a director of News Corporation.
 
 >Radiation has long been associated with the development of primary cancers and, when used as treatment, imparts a risk for the development of a second cancer.
 
+>If you want to be a conductor because you want to get your own box to stand on, your own special stick to wave in the air and someone waiting in the wings with a glass of water for you when you walk off stage, you're in it for the wrong reasons.
+
 >The serratus anterior is often visible in well-defined physiques, creating those sought-after "ribbed" or "sculpted" looks. But remember, the muscle's primary function is functionality, not just aesthetics!
 
 >An ETF with the same strategy as a similar ETN would be exposed to the same strategy risks, but not the same structural risks. How complicated is it?
