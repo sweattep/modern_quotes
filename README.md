@@ -11,6 +11,8 @@
 
 >teaching mathematics and English grammar was the most satisfying job I have ever held.
 
+>what we don't see alot in movies is a black mand and a black woman together, and that's the happy ending
+
 >the more you have what you want, the less you're gonna do what you want
 
 >Things always missin', maybe it could be (Uh) My friends, but they ain't friends if they robbin' me Stoppin' me, from makin' a profit, see
