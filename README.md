@@ -51,6 +51,8 @@
 
 >they organized politically to negotiate with city officials.
 
+>anytime i can express myself i can let some of the pain go from a childhood like mine
+
 >You cannot look forward if you are looking left and right.
 
 >it has been said that man is a rational animal.
