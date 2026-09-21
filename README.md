@@ -143,6 +143,8 @@
 
 >Preventing weight gain and obesity, which are linked to increased cancer risk
 
+>increased dietary intake of isoflavone was only significantly associated with risk of total mortality
+
 >There was no field. I just wanted to learn how to do something well.
 
 >You know you're a good leader, if people follow you, if only out of a sense of curiousity
